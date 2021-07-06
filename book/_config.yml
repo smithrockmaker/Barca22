@@ -1,18 +1,25 @@
-# in _config.yml
-title:
-author: Bruce Emerson
-logo: imagesBarca22/Barca22Logo.png
+# I have played with a number of these configuration settings and they don't always result
+# in the expected output formats. I suspect this has to do with being slightly behind the most
+# current release of jupyter-book. - Bruce, July 2021
+# Book settings
+title                       : Barca22  # The title of the book. Will be placed in the left navbar.
+author                      : Bruce Emerson  # The author of the book
+copyright                   : "2021"  # Copyright year to be placed in the footer
+logo                        : "imagesBarca22/Barca22Logo.png"  # A path to the book logo
+# Auto-exclude files not in the toc
+only_build_toc_files        : true
 
-# Add a bibtex file so that we can create citations
-bibtex_bibfiles:
-  - references.bib
-  
-# Force re-execution of notebooks on each build.
-# See https://jupyterbook.org/content/execute.html
-# "off" reuses cached output unless ipynb has changed.
-execute:
-  execute_notebooks: "force"
-  
+email: bemerson@cocc.edu
+
+repository:
+  url: https://github.com/smithrockmaker/Barca22
+  branch: main
+  path_to_book: "book"
+
+html:
+  use_repository_button: true
+  extra_navbar: Powered by <a href="https://www.spaghettimonster.org/">His Noodliness</a>  # Will be displayed underneath the left navbar.
+
 html:
   extra_footer: |
     <p>

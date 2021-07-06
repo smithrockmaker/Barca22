@@ -1,0 +1,25 @@
+# in _config.yml
+# Book settings
+title                       : Barca22  # The title of the book. Will be placed in the left navbar.
+author                      : Bruce Emerson  # The author of the book
+copyright                   : "2021"  # Copyright year to be placed in the footer
+logo                        : "imagesBarca22/Barca22Logo.png"  # A path to the book logo
+# Auto-exclude files not in the toc
+only_build_toc_files        : true
+
+email: bemerson@cocc.edu
+
+repository:
+  url: https://github.com/smithrockmaker/Barca22
+  branch: main
+  path_to_book: "book"
+
+html:
+  use_repository_button: true
+  extra_navbar: Powered by <a href="https://www.spaghettimonster.org/">His Noodliness</a>  # Will be displayed underneath the left navbar.
+
+html:
+  extra_footer: |
+    <p>
+    <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>.
+    </p>
