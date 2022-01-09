@@ -1,3 +1,3 @@
-### Summer 2021
+## Summer 2021
 
-asfbaf 
+In this chapter I will endeavor to document the work we did around postponing the program and restructuring the timeline for a spring program. 

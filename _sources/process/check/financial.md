@@ -1,3 +1,3 @@
-### Checklist: Financial
+## Checklist: Financial
 
-asfbaf 
+A chapter to track Financial preparations for the program.....
