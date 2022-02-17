@@ -45,3 +45,11 @@ Plaça Bonsuccés, 5 Entlo
 ### Street Artists:
 
 [Guide to Barcelona Street Artists](https://theculturetrip.com/europe/spain/articles/10-barcelona-street-artists-you-need-to-know/)
+
+### Urban Sketching:
+
+There appear to be a number of urban sketching groups in Barcelona. This one seems to have found animals somewhere in Barca is you believe their blog. 
+
+[Urban Sketchers Barcelona](https://urbansketchersbarcelona.blogspot.com/) seems to be a fairly current and active site. [Urban Sketchers Spain](http://spain.urbansketchers.org/) seems to be out of date with no particular events listed on their calendar. 
+
+There is a reference to BCN Dibuixa (Dibujo - es) which is a fall festival honoring drawing in all it's forms. This festival is usually sometime in October.

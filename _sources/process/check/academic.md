@@ -9,9 +9,9 @@ All participants are expected to sign up for HUM 107 (Spanish Culture), Spanish 
 * HUM 107 Spanish Culture CRN 25119
 * GS 104 Physics CRN 25109
 * GS 107 Astronomy CRN 25110
-* MUS 101 Understanding Music CRN 25108
+* MUS 101 Understanding Music CRN 25816
 
-**Spanish Language Classes:** Don't sign up until after placement test.  
+**Spanish Language Classes:** Current plan (2/13/22) is that you should self place into the Spanish course that you think is right for you.  
 
 * SPAN 101 CRN 25120
 * SPAN 102 CRN 25121
@@ -21,4 +21,4 @@ All participants are expected to sign up for HUM 107 (Spanish Culture), Spanish 
 * SPAN 203 CRN 25125
 * SPAN 211 CRN 25126
 
-**Student ID Numbers:** Be sure that Bruce or Sara has your 820 student ID so we can give instructor approval or take other steps to help with registration.
+**Student ID Numbers:** Be sure that Bruce or Sara has your 820 student ID so we can give instructor approval or take other steps to help with registration. Without your 820 ID you can't get approval to register and will be blocked.

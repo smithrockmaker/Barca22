@@ -28,4 +28,12 @@ This is a network of makerspaces/fab labs that appears to be supported at least 
 
 [ATTA33](https://atta33.com/) This makerspace seems slightly focused on the needs of the architectural community at the nearby Disseny (design) Center. This one is just a few blocks from the school towards the Torre Glóries. 
 
-[TransfoLAB BCN](https://www.transfolabbcn.com/) This very cool makerspace seeks to address a number of issues and projects related to the repurposing or reuse of waste in many forms. It has a makerspace but also residencies and an informal learning academy. Many classes are offered for students of different ages. Looks like a very cool space. Just a few blocks towards the beach from ATTA33 noted above. 
+[TransfoLAB BCN](https://www.transfolabbcn.com/) This very cool makerspace seeks to address a number of issues and projects related to the repurposing or reuse of waste in many forms. It has a makerspace but also residencies and an informal learning academy. Many classes are offered for students of different ages. Looks like a very cool space. Just a few blocks towards the beach from ATTA33 noted above.
+
+### Alfaro:
+
+This small town is [located](https://www.google.com/maps/place/26540+Alfaro,+La+Rioja,+Spain/@41.990806,-1.7258596,9.53z/data=!4m5!3m4!1s0xd5a5c29275a9899:0x4756601f55a167cd!8m2!3d42.1772977!4d-1.7502311) about 60 km west of Zaragoza. It is the current home of Hermano Jesus who was a Spanish Lit teacher for my brothers and I when we lived in Venezuela in 1972. Brian and I are hoping to perhaps visit him during our time in Spain. 
+
+Alfaro is a small town located along the [Camino Ignaciano](https://caminoignacianocouk.wordpress.com/) which is another less traveled camino like the well known Camino Santiago. The linked blog descibes the entire camino which starts near Bilbao and finishes just outside Barcelona in Manresa. Ignacius Loyola is one of the founders of the Jesuit order and this camino traces his trek to get to Jerusalem in 1522 during the plague.
+
+All of which is nice but what is cool is that Alfaro is often visited for the stork population that is resident from December through August each year. A Spanish version of the storks in Denmark and other European locations.
