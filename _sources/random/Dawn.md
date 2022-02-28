@@ -46,10 +46,18 @@ Plaça Bonsuccés, 5 Entlo
 
 [Guide to Barcelona Street Artists](https://theculturetrip.com/europe/spain/articles/10-barcelona-street-artists-you-need-to-know/)
 
-### Urban Sketching:
+
 
 There appear to be a number of urban sketching groups in Barcelona. This one seems to have found animals somewhere in Barca is you believe their blog. 
 
 [Urban Sketchers Barcelona](https://urbansketchersbarcelona.blogspot.com/) seems to be a fairly current and active site. [Urban Sketchers Spain](http://spain.urbansketchers.org/) seems to be out of date with no particular events listed on their calendar. 
 
 There is a reference to BCN Dibuixa (Dibujo - es) which is a fall festival honoring drawing in all it's forms. This festival is usually sometime in October.
+
+### Kettlebell Training:
+
+Dawn loves kettlebell training. There is at least one training facility in Barcelona. [Kettlebells Barcelona](https://www.kettlebellsbarcelona.com/) looks like they have regular classes every day and they are [two blocks up from our classroom](https://www.kettlebellsbarcelona.com/contacto) on Carrer Casp. There is also a [kettlebell training Meetup](https://www.meetup.com/nomadfit-entrenamiento-al-aire-libre-bcn/) that trains with kettlebells in the park every few weeks. 
+
+### Blues/Swing/Jazz Dancing:
+
+Dawn and I met dancing and we imagine that if we are at a loss for something to do we might go hunt up the swing dancing groups in Barcelona and see what they are doing. [BCN Swing](https://www.bcnswing.org/escoles-de-ball/) is a website that aggregates all the many dance opportunities of this type.

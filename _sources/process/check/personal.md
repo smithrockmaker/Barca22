@@ -18,7 +18,11 @@ Participants in the COCC Study Abroad Program will normally have a round trip fl
 
 Medications can pose special challenges in packing for Barcelona. Pharmacies in the US will not generally issue prescriptions for longer than 3 months which probably won't coincide with your trip dates. Pharmacies in Spain may not accept your presciptions since US doctors are not licensed in Spain. Shipping medications to Spain is likely to lead to your medications being stuck in customs. The most effective solution is to bring what you need. Plan ahead and get into your doctor's office to discuss arrangements to get enough of your prescriptions to last though your entire trip. Pack these in your carry on luggage since it is least likely to get lost. 
 
-In the case of lost medications a document from your doctor documenting your prescriptions may be helpful in attempting to solve this challenge. This is NOT a prescription but rather documentation of your prescriptions.
+In the case of lost medications a document from your doctor documenting your prescriptions may be helpful in attempting to solve this challenge. This is NOT a prescription but rather documentation of your prescriptions. Make a checklist so each medication you're sure you..
+
+a) have enough (90 days might just be enough)
+b) have digital record of prescription
+c) have written record showing the prescription (not a prescription!)
 
 ```{admonition} Checklist Task
 Get all medications you need for trip ahead of time.

@@ -2,6 +2,8 @@
 
 ### Solar Energy in Spain:
 
+[Europe (ESTIF - European Solar Thermal Industry Foundation) has an initiative](http://www.estif.org/policies/solar_ordinances/) to support and develop local and regional solar energy ordinances (building requirements). In the linked website they point out that Barcelona has been a leader
+
 
 ### Solar Energy Teaching/Learning Resources
 
@@ -13,7 +15,7 @@ The weekend of April 8th is when we plan to visit Zaragoza and the region around
 
 #### Classroom Building
 
-There is, or was, a flat panel solar array (PV) on the roof of the classroom building at Carrer Casp. Would be good and interesting to see if there is a monitoring panel in the building or accessible via software. It's possible that this is a solar hot water array but not sure from the satellite view.
+There is, or was, a flat panel solar array (PV) on the roof of the classroom building at Carrer Casp. Would be good and interesting to see if there is a monitoring panel in the building or accessible via software. It's possible that this is a solar hot water array but not sure from the satellite view. Iria is looking into whether it's still on the roof and if the maintenance folks would give us a tour.
 
 #### Hotel Ayer Casp
 
