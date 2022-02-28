@@ -20,7 +20,7 @@ As we have talked about (perhaps) this means I am using energy at the rate of (6
 
 According to [wiki](https://en.wikipedia.org/wiki/List_of_countries_by_electricity_consumption) people in Spain use less than half what the average American uses - around 5135 kWh/yr in 2019. This is around 400 kWh/month! [Other sources](https://www.surinenglish.com/spain/average-monthly-electricity-20211019114652-nt.html) suggest that the 400 kWh/month includes usage while we are at work and the typical household usage is closer to 300 kWh/month. That's about 1/3 of a typical American household.
 
-**But the Cost!** Billing for electricity is structured very differently in Spain which offers us an opportunity for some cultural exploration. What is shown below is just one of many different energy use plans. The first thing to note is that there is a base rate that depends on the rate at which you can use power. There are three tiers (< 5kW, 5-10kW, 10-15kW). 
+**But the Cost!** Billing for electricity is structured very differently in Spain which offers us an opportunity for some cultural exploration. What is shown below is just one of many different energy use plans. The first thing to note is that there is a base rate that depends on the rate at which you can use power. There are three tiers (< 5kW, 5-10kW, 10-15kW). Here are the [various plans](https://www.iberdrola.es/en/electricity) offered by Iberdrola (a major provider)
 
 ![Usage in Spain](../imagesBarca22/SpainPower.png)
 
@@ -35,3 +35,5 @@ Here's an extreme example plan for folks you might have electric vehicles.
 Notice that the cost of energy during the low cost time is only &euro;0.03/kWh. Conversely the cost of energy during peak use times is &euro;0.46/kWh - 15x higher!!
 
 Perhaps this will help us all be more conscious of how electrical energy use in Spain is much more complex and expensive. Not surprisingly people are much more attentive to energy use as a result.
+
+This [news article](https://www.euroweeklynews.com/2021/06/01/spains-new-three-tiered-electricity-tariffs-start-today/), from summer 2021, talks about changes to the billing patterns for electricity which has probably influenced the plans currenlty offered.

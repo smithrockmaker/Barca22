@@ -4,6 +4,10 @@
 
 [Europe (ESTIF - European Solar Thermal Industry Foundation) has an initiative](http://www.estif.org/policies/solar_ordinances/) to support and develop local and regional solar energy ordinances (building requirements). In the linked website they point out that Barcelona has been a leader
 
+In Barcelona that city makes many resources available to support citizens and track renewable energy issues. This [city website](https://ajuntament.barcelona.cat/ecologiaurbana/en/services/the-city-works/maintenance-of-public-areas/energy-management/energy-planning/energy-observatory) is the starting point for exploring all of that. I need to explore more here to generate learning experiences.
+
+Electricity use is monetized very differently in Spain and Barcelona. Here is are the [plan options](https://www.iberdrola.es/en/electricity) from Iberdrola (a large energy providor). This [news article](https://www.euroweeklynews.com/2021/06/01/spains-new-three-tiered-electricity-tariffs-start-today/), from summer 2021, talks about changes to the billing patterns for electricity which has probably influenced the plans currenlty offered.
+
 
 ### Solar Energy Teaching/Learning Resources
 
