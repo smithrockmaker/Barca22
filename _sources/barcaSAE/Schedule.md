@@ -60,11 +60,11 @@ This week is all about getting settled and finding your way around. We will meet
 
 #### Week 9: May 16 - 22
 
-* May 20 (Friday): Day Trip Dalí
+* May 20 (Friday): Day Trip Dalí Museum, Besalu, Costa Brava
 
 #### Week 10: May 23 - 29
 
 
 #### Week 10.5: May 30 - June 1
 
-* May 20 (Tuesday): Re-entry workshop & Farewell Meal
+* May 31 (Tuesday): Re-entry workshop & Farewell Meal
