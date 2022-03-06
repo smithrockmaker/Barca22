@@ -45,3 +45,8 @@ Ana Vara who works with the Pine Meadow Ranch project in Sisters mentioned a gro
 ### Larroque-Saint-Sernin
 
 This is the locale for Anita Lehmann's painting workshop which starts after the Easter holiday (4/18 - 4/26). Getting there would be an adventure for sure. Barcelona to Narbonne and Narbonne to Toulouse can be accomplished pretty smoothly on Renfe and TGV (high speed trains). From Toulous there is a local train which gets you to Auch. At that point it bus or taxi to Larroque-Saint-Sernan which is hopefully close to the atelier which sounds lovely in this [article from Interior Design](https://interiordesign.net/projects/nbbj-s-rysia-suchecka-talks-about-how-she-reinvented-a-french-farmhouse/)
+
+### Stan Meyerhoff
+
+If I get some time it might be fun to go find Stan and say hi. His email and address is in my password manager. Out of appreciation for his desire for anonymity I'm not posting specific information here. He and his partner live close to the border with Spain in France. Figueres is the nearest train stop in Spain. A bit fussy to get from there. Car might be the easiest if we wanted to rent.
+

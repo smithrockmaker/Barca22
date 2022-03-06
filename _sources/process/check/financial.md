@@ -21,6 +21,16 @@ The second task is to document card numbers, expiration dates, codes, and phone 
 Document card numbers separately from the cards themselves. Include the phone number for reporting lost or stolen cards.
 ```
 
+Here's my personal version of the checklist for my important cards etc. 
+
+|                |  |  Notified  |  data saved | photocopy | 
+|----------------|--|------------|-------------|-----------|
+| Passport       |  | - [ ]      | - [ ]       | - [ ]     |
+| Credit Card #1 |  | - [ ]      | - [ ]       | - [ ]     |
+| Credit Card #2 |  | - [ ]      | - [ ]       | - [ ]     |
+| Debit Card     |  | - [ ]      | - [ ]       | - [ ]     |
+| Bank           |  | - [ ]      | - [ ]       | - [ ]     |
+
 ### Cash for Travel:
 
 We get very used to being able to pay for everything with cards or digital tools. It is often important to have small amounts of cash available for small purchases or tips. Barcelona SAE notes that for purchases of less that 10&euro; (like coffee) many vendors don't accept cards. The general recommendation is to take roughly 100&euro; in cash on your way to Barcelona. You can get euros from your bank here in the US before you go. It takes a few days so plan ahead.

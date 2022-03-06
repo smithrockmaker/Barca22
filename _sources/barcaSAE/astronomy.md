@@ -15,7 +15,7 @@ Sundials hold a fascination for many people for a range of reasons. They are a n
 
 We'll probably use some part of my usual course materials for the topic of [eclipses](http://coccweb.cocc.edu/bemerson/PhysicsGlobal/Courses/GS107/GS107Materials/GS107Breadcrumb/GS107BCSunEarthMoonII.html). This is another great topic to explore outdoors in the park or on the beach. Depending on weather we will plan to do so.
 
-Remarkably nature has arranged for a total eclipse of the moon on May 16th (a Monday night) right as the moon sets (which will be just before dawn!). We will talk about this the week before and hope to see everyone on Placa d'Europa where we should have a great view to the moonset and the eclipse.
+Remarkably nature has arranged for a total eclipse of the moon on May 16th (at sunrise on Monday morning - 5:30 am!) right as the moon sets (which will be just before dawn!). We will talk about this the week before and hope to see everyone on Placa d'Europa where we should have a great view to the moonset and the eclipse.
 
 ![Lunar Eclipse](../imagesBarca22/LE2022May16T.png)
 

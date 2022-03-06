@@ -44,18 +44,18 @@ Nothing in my pockets to deal with.
 
 ### Personal Bag: 
 
-My planned personal bag is quite small so here is my list
+My planned personal bag is quite small so here is my list. Items marked -[x] are in daily use and need to be added to bag at last minute!
 
 * Passport
-* Phone
+* Phone - [x]
 * Credit Card
-* Phone charging cord
+* Phone charging cord -[x]
 * Headphone charging cord
 * eye cover
-* glasses/contact container
+* glasses/contact container - [x]
 * cash (not all)
 * 1 KN95 or better mask
-* dark glasses
+* dark glasses - [x]
 
 ### Carry On Bag:
 
@@ -64,8 +64,8 @@ I admire those who can travel indefinitely with a single carry on bag. I would h
 #### Personal Items:
 
 * Passport Card
-* Oregon Drivers License
-* Debit Card
+* Oregon Drivers License -[x]
+* Debit Card 
 * another Credit Card
 * Noise cancelling headphones
 * neck pillow
@@ -78,9 +78,9 @@ I admire those who can travel indefinitely with a single carry on bag. I would h
 * Laundry bag (to separate dirty stuff)
 * Toiletries bag
 * Bag with meds for trip
-* Extra glasses and reading glasses
-* small razor
-* Extra dark glasses)
+* Extra glasses and reading glasses -[x]
+* small razor 
+
 
 
 #### Clothes:
@@ -93,6 +93,8 @@ I admire those who can travel indefinitely with a single carry on bag. I would h
 * shirt - long sleeve
 * shirt - short sleeve
 * swim suit
+* yoga pants - [x]
+* t-shirt
 * Sun hat
 
 ### Checked Bag:
@@ -109,6 +111,7 @@ I admire those who can travel indefinitely with a single carry on bag. I would h
 * backup pair of glasses
 * Chapstick
 * Lotions (OTC)
+* powered toothbrush -[x]
 
 #### Clothes:
 
