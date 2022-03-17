@@ -50,3 +50,6 @@ This is the locale for Anita Lehmann's painting workshop which starts after the 
 
 If I get some time it might be fun to go find Stan and say hi. His email and address is in my password manager. Out of appreciation for his desire for anonymity I'm not posting specific information here. He and his partner live close to the border with Spain in France. Figueres is the nearest train stop in Spain. A bit fussy to get from there. Car might be the easiest if we wanted to rent.
 
+### Our Apartment:
+
+Today (3/16/2022) we heard that our apartment

@@ -23,7 +23,7 @@ Sign up for HUM 107 plus at least two of the other classes on this list.
 * HUM 107 Spanish Culture CRN 25119
 * GS 104 Physics CRN 25109
 * GS 107 Astronomy CRN 25110
-* MUS 101 Understanding Music CRN 25816
+* MUS 101 Understanding Music CRN 25186
 
 **Spanish Language Classes:** Current plan (2/13/22) is that you should self place into the Spanish course that you think is right for you.  
 

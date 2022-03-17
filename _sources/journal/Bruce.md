@@ -1,4 +1,4 @@
-## Bruce's Journal:
+### Bruce's Journal:
 
 Perhaps this will be a way for me to track and share my experiences before, during, and after Barcelona. I'm pretty excited but there are lots of pieces of this puzzle that I'd like to capture even when they're not the most positive.
 
@@ -15,3 +15,13 @@ As a teacher or a student it would be much easier to be getting ready for study 
 Another thing I'm trying to discuss with myself is engaging with the students/participants through the classes and shared experiences but acknowledging that each of us will create our own trip experiences. We are here as a group and yet we are also here as individuals and it is not on me to organize get togethers. I hope they happen naturally but I need to be attentive to boundaries around my own needs. Hmmmmm...
 
 A couple of big items have been checked off the list (taxes, money management tools, unlocked phones, meds) while there are still a couple more that I need to check into before we go (social security/medicare). Sort of getting down to the wire....
+
+#### 24 hrs out 16/03/2022
+
+Well, we finally heard where our apartment is (Carrer del Clot 182 C). El Clot is apparently an older neighborhood that has a distinctly Catalan leaning. The apartment is a few blocks NE of the Clot metro station which serves the L1 and L2 metro lines. L1 will get me to Arc de Triomf and L2 will get me to Placa de Tetuan. Cool! 
+
+Current plan is to book a taxi to get us to the apartment ([Welcome Pickups](https://www.welcomepickups.com/barcelona/airport-transfer-book/?tap_a=35776-9a5baf&tap_s=312303-1982ae]) or [BCN Taxi](https://www.booktaxibcn.com/services/73-book-taxi-barcelona-airport-transfers)) The Aerobus finishes at Placa Catalunya which is still a mile away. The bus will be about 16&euro; and the Welcome Pickup is only 37&euro;. Seems like a modest difference given how tired we will be and just schlepping the bags etc.
+
+Just doing a little exploring on google and it would appear that the restaurant Lanto (Carrer de Valencia 646) is very muich loved by all who go there. Perhaps it's expensive - I have no idea -  but it's just a block or so away and everyone seems to love it and the responses from the owners are lovely. Similarly the Italian restaurant just down the block (La Biga) impresses many folks. Seems like we won't starve in the first few days:)
+
+Getting quite excited to start this trip. The main worry is the aggravation if we can't make the connecting flight to BCN from Paris. We are likely to need to get from a 2E terminal (non Schegen) to 2F which are the Schengen flights. Air France runs most of it's flights from Terminal 2. Here are some helpful articles to scan if we can find out where we land and leave. [Navigating CDG](https://seetheworld.travelforkids.com/travel-tips-navigating-charles-de-gaulle-airport/) gives a general sense of the layout. [Air France](https://easycdg.com/passenger-information/connecting-flight-connections-paris-cdg-airport/transfer-terminal-2e/terminal-2e-to-terminal-2f/) has a apparently clear guide for getting from 2E gates (International arrivals) to 2F gates (Schengen flights). We'll hope that we don't arrive at a 'K' gate which will push us very hard to make it to our BCN flight. As soon as we know our arrival gate I need to take a look at these and get some familiarity.

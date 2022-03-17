@@ -19,3 +19,13 @@
 * From Belchite about 10 km E on A-1307 is an unusual solar farm that is a tracking system (most are fixed) which would support a valuable discussion about why this approach is no longer cost effective and how it is (slightly) more efficient at providing power.
 
 ![Tracking Solar](../imagesBarca22/trackingSolar.png)
+
+### La Escuela-Museo de Origami de Zaragoza (EMOZ)
+
+The Origami museum in Zaragoza is apparently a hidden gem (according to visitors and Rick Steves). It is only 3&euro; and it appears to be [open in the evenings](http://www.emoz.es/horarios-y-tarifas/) while we are in Zaragoza. A possible thing to do in some of your free time. I'm certainly planning to see if I can get there. Here is the link to the [EMOZ](http://www.emoz.es/acerca-de-emoz/) page which is also available in English (top right). Below is the show that will be on display while we are there.
+
+![EMOZ Current Show](../imagesBarca22/EMOZCurrent.jpg)
+
+In case it's handy or you can't remember the name here is a map. We will be visiting various places to the west (left) of these part of town but I suspect we'll be on the same side of the river for our hotel.
+
+![EMOZ Map](../imagesBarca22/EMOZMap.png)
