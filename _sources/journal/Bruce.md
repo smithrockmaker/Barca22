@@ -101,7 +101,9 @@ We had our midday meal at Canape Lounge near us. Not sure what we were ordering 
 
 After that hefty lunch we walked around and around the neighborhood looking for food stores. Stopped in a couple that either had very unhappy looking fruit and veg or had a 7-11 menu of chips and soda and candy. Disappointed we headed towards where I hoped the Mercat del Clot was on the map. A slightly older feeling part of town. We passed an Islamic Center along the way multiple other possible places to eat in the future. The Mercat was where I hoped it would be and for a moment it seemed like it might actually be open on a Sunday which seemed surprising. Turns out it was a Catalan Independence gathering. Lots of music and many young folks. Couldn't see that anything in particular was going on but seemed energetic and safe. There was another lovely panederia at the edge of the market and a fruit and veg store where the fruit seemed very happy. We bought some fruit and veg as you would expect.
 
-The Mercat del Clot is on the edge of the Parque del Clot which is a large community park built around the ruins of the old RENFE (trains) workshop. Very cool. Some folks were setting up a volleyball net in spite of the recent rain. Playing volleyball on a concrete court reminded me of Venezuela. No sand or hardwood here:)
+The Mercat del Clot is on the edge of the Parc del Clot which is a large community park built around the ruins of the old RENFE (trains) workshop. Very cool. Some folks were setting up a volleyball net in spite of the recent rain. Playing volleyball on a concrete court reminded me of Venezuela. No sand or hardwood here:)
+
+![Parc del Clot](../imagesBarca22/ParcClot.jpg)
 
 Made our way back home and called it a day until El Classico at 9:00. Turns out we have some american sounding college students one level up and on the other side of the building. Heard them chatting on the back deck. Perhaps we will say hi if an opportunity presents itself.
 
