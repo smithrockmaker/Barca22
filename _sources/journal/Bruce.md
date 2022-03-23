@@ -115,7 +115,7 @@ Part of the value of journaling for me is just to review what happened along wit
 
 **Monday:** - the first day of the program - Alba went out to the airport to get the incoming students off to their homestays. In the meantime Dawn and I did a little more exploring of our neighborhood. Some more bread from the little store outside our door. Found an actual supermarket down a sidestreet that we had not visited yet -- yay! Just two blocks away. Started getting food in the apartment. Not surprisingly the store is organized a bit differently than our US stores but still very much a clean modern feel. Two amusing differences. Where we tend to have small carry baskets when you're not shopping for much the carry baskets here have two handles. One short one for carrying as we usually do and one longer one for dragging the basket along the floor in it's tiny wheels. Actually saw one local get tangled up in her basket on the floor and take a header. 
 
-![Shopping Trolley](../imagesBarca22/shoppingTrolley.jpg)
+![Shopping Trolley](../imagesBarca22/shoppingTrolley.png)
 
 The other difference that stuck me/us was the selection of fish available in the supermarket (Mercadona). Except at Fisherman's Pier in Seattle I've never seen so much fish of so many different kinds on ice. Lots to learn about fish for sure. 
 
