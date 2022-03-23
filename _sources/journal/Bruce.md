@@ -157,10 +157,38 @@ The tour finished at Placa de Sant Jaume where City Hall is located as well as h
 
 We found our way back to La Rambla with Elizabeth. The rest mostly headed off to lunch somewhere while we headed up to the metro to catch the train over the Marina for Dawn's kettlebell class. Got turned around again but eventually figured it out and arrived in plenty of time. Dawn got some serious training in for an hour while I watched:b. 
 
-After class we stopped at Restaurant Rosmarin across the street from the kettlebell place for main meal. Tried their Menudedia -- 11.50euro; with two courses, wine, bread, and dessert. Tasty and filling. Dawn had a Ensalada de Huerta which was a green salad with tuna and eggs for primero, I had a pasta dish - tasty, Dawn had Hambugesa for main course - not at all what you would expect, and I have a Carne ??? al plancha con patata - sort of a thin grilled steak. Dessert Dawn had Helada de Limon - Lemon Italian Ice and I had a flan. Both were excellent. All in all very tasty and filling. 
+After class we stopped at Restaurant Rosmarin across the street from the kettlebell place for main meal. Tried their Menudedia -- 11.50&euro; with two courses, wine, bread, and dessert. Tasty and filling. Dawn had a Ensalada de Huerta which was a green salad with tuna and eggs for primero, I had a pasta dish - tasty, Dawn had Hambugesa for main course - not at all what you would expect, and I have a Carne ??? al plancha con patata - sort of a thin grilled steak. Dessert Dawn had Helada de Limon - Lemon Italian Ice and I had a flan. Both were excellent. All in all very tasty and filling. 
 
 Walked home with Dawn leading the way. She did a great job working out her landmarks and which way to go. Still not entirely confident but getting there. Stopped into the local ferreteria for batteries and a pocket knife. Good on the batteries but no on the pocket knife. Perhaps the folding or pocket knife is called a navaja? This was part of the problem. End of long but interesting day.
 
 #### 23/3/2022
 
-We shall see....
+Spent most of the morning updating the journal for the last couple of days -- I know it's not critical but I feel like it helps me review the day and things that I may have learned. After spending the morning doing digital chores including finishing up grading for winter term we headed over to find the Expanish school near La Pedrada (Casa Mila) - another UNESCO Heritage building. La Pedrada was amaizing from the outside and we will certainly figure out a way to do a tour since we had such a fascinating time at Casa Batlló the other day. 
+
+Expanish has a number of small classrooms and a large lounge area. We stopped in to use the bathrooms and then took a little walk around. At one point we passed a place called Robot Shop which I wondered if it was one of the makerspaces I was looking into but glancing inside as we went by it was under construction so hard to tell if it 'was' the Robot Shop or was 'about to be' the Robot Shop. 
+
+The construction world here in Barca has so many special issues to deal with compared to construction in a place like Bend/Redmond. There is lots of remodeling going on but the only place to park or store materials is on the sidewalk or in the road and that is clearly precious real estate. Construction trash is taken out in shopping carts and large poly sacks that are lifted buy cranes. We saw a cool material escalator that lifted small materials from the curb up serveral floors on the outside of a building to get to the apartment being remodeled. Small walk behind forklifts are everywhere and I know I've seen them in the US but not so commonly.
+
+Everyone made it to the 'prueba' at Expanish at 2:00. We gathered in a room and each student was taken separately into a room with a 'professor' and engaged in conversation. I'd love to know how it went for different students but I'm sure we all felt hopeless in our own way. Dawn basically said 'I speak some French' and was asked if it was OK to be placed into the basic class. She was totally cool with that. My professor scribbled a bunch of stuff but I didn't ask what his assessment was. I assume I'll hear next week.
+
+**Side NOTE:** A bunch of us have been finding ourselves remarkably dehydrated since we have arrived. At one level it seems surprising since is has been relatively humid (rainy) but perhaps we're moving around a lot and not having such easy access to fluids. We had some tubes of pedialyte (rehydration minerals/salts) that we have shared with some students and used ourselves. Just a thing to think about.
+
+As we headed down towards the Gothic district to get to the Museo Picasso we passed a couple of points of interest. We were walking along Carrer de Roger de Llurià and in the block just NW of Plaça d'Urquinoana there are what appear to be a series of fabric stores all in a row. Perhaps it's just one store spread across several entrances but it felt like they were different names so maybe not? Dawn remembered this might be of interest to E. In the previous block we felt like we walked past a number of gamer shops but they don't show on Google maps. Worth a check out.
+
+Eventually we got down to the gothic district and felt like we were headed in the right direction to get to the museum but got a bit turned around. Dawn was using google maps on our local phone with data and after a bit it seemed like it was sending us in circles. After looking at the map and watching what it was telling us it became apparent that in the narrow streets of the Gothic district the location it pegged for us wasn't good enough for the directions to stay on track. Good old fashioned map reading wa required and we finally got straightened around. Just as we got to the museo who should we run into but Oliver from our SAE tour on Tuesday - amazing to meet someone we actually knew in Barca besides our group. Oliver noted that the Museo Picasso had recently removed the section of paintings from the Blue period without any apparent notice. He was headed in to make sure his tour plan wasn't all messed up. We went ahead and went in (very inexpensive - 7&euro; for us oldsters) and spent a fascinating hour or so wandering around. Crowded but not ridiculously so. Even I was intrigued by the many repetitions of scenes or settings that Picasso did to explore the possibilities of the design and structure of the composition. A particularly cool version of this were the many paintings in the Las Meninas collection. These are paintings Picasso did modeled on a painting (Las Meninas) by an earlier Spanish painter named Diego Velasquez (1600's). Below is the original by Velasquez and one of many versions painted by Picaso.
+
+Las Meninas: Velasquez
+
+![Las Meninas: Velasquez](../imagesBarca22/Las MeninasVelasquez.jpg)
+
+Las Meninas: Picasso
+
+![Las Meninas: Picasso](../imagesBarca22/Las MeninasPicasso.jpg)
+
+Cool visit.
+
+We walked back towards the nearest metro stop but it was only served by L4 and it wasn't clear to me where that connected with the lines we needed. Not too much further to just walk up to Plaça Catalunya and ride home from there which we did. 
+
+Big steps for Dawn as we got home as she negotiated her own purchase of our baguettes (boy do we go through bread!) at our local shop. I went down to the Mercadona to get wine and trash bags. After dinner we relaxed with some The Good Doctor on Netflix (how have we not run into this before?). 
+
+Tomorrow is the day hike at Tibidabo with Jordi and Laura. Food and fun and maybe rain.V
