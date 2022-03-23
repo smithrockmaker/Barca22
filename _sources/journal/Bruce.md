@@ -129,7 +129,7 @@ Azul (L5) will get us to Spanish class after a change at the Sagrada Familia sta
 
 Jordi (jordi.junca@barcelonasae.com) took us on a short walk down to the cathedral and took a picture of those who were there. I would imagine the goal was to get the folks who had just arrived to stretch their legs and try to stay awake until the end of the day to facilitate their internal clocks. Elizabeth did not make it due to missed connection in Amsterdam. She arrived safely later in the evening and found her apartment.
 
-![Group Day 1](../imagesBarca22/Day1Group.jpg)
+![Group Day 1](../imagesBarca22/Day1Group.jpeg)
 
 After the walk we hopped on the metro with our new metro cards and made our way home. When we arrived at home I looked for a Yoigo store to get the SIMs for our phones and found one 1 km away. Left Dawn at the apartment to rest and walked down Carrer Valencia to the Yoigo store. Got everything sorted but needed an actual passport to setup the account. Who knew you needed a passport to get a phone? Interestingly my passport card was NOT accept in place of the passport. Walked home to get passports and my metro card and went back to get the SIM's and plans implemented. Along the way I had an interesting collision with my expectations. For whatever reason I was expecting the metro trains to have some color indication that aligned with the particular route. Red for L1, green for L3 etc etc. I was on the correct platform L2 Parallel to head west on L2 but the train that came was red with no indication that it was a morado (L2) train. I let a couple pass before deciding that I couldn't get that far off track just going one stop. Turns out that it was the correct train and there are no indications on the outside of the train indicating the line. As usual, when I got out at my stop, I got totally turned around and headed off in the wrong direction 3 times before finally heading the block to the Yoigo store. Now we have 20 GB data plans and phones but, interestingly, no SMS text. We'll see if that turns out to be sufficient. 15&euro;/month seems pretty reasonable compared to the 100/month to use our phones from home. 
 
@@ -191,4 +191,4 @@ We walked back towards the nearest metro stop but it was only served by L4 and i
 
 Big steps for Dawn as we got home as she negotiated her own purchase of our baguettes (boy do we go through bread!) at our local shop. I went down to the Mercadona to get wine and trash bags. After dinner we relaxed with some The Good Doctor on Netflix (how have we not run into this before?). 
 
-Tomorrow is the day hike at Tibidabo with Jordi and Laura. Food and fun and maybe rain.V
+Tomorrow is the day hike at Tibidabo with Jordi and Laura. Food and fun and maybe rain. Vamanos!
