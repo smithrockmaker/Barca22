@@ -42,7 +42,7 @@ The 'spare' room is the artist's workspace...
 
 ![Artist at Work (already!)](../imagesBarca22/artistAtWork.jpg)
 
-Cozy but workable. Washing machine out on the back deck with the pigeons (pigeon is what in Spanish?). Laundry line off the back deck. IF you  drop something it appears that it will be gone forever seeing the inaccessible area it falls into and evidence of past laundry fails:)
+Cozy but workable. Washing machine out on the back deck with the pigeons (pigeon is what in Spanish? - paloma, should have remembered from a pop song in my youth). Laundry line off the back deck. IF you  drop something it appears that it will be gone forever seeing the inaccessible area it falls into and evidence of past laundry fails:)
 
 Wifi, which seems critical, didn't match information posted on door. Emailed Alba from Dawn's account (more about that later) since it was still working hours in BCN. This is around 2;00 local time. She was able to reach the housing folks and they arrived in an hour after we had barely gotten unpacked. Wifi had rebooted to default name and password due to recent thunderstorms. Helpful guy checked to see if we could connect to wifi outside front door so we wouldn't need cell data but no such luck. He immediately said he would get a physical key for the outside door in case we needed it and delivered it within a couple of hours. Very friendly and great English which we probably didn't need but made it easier. 
 
@@ -149,7 +149,7 @@ Roman era blocks (cerca 2000 years) with holes visible for crane tongs used to s
 
 ![Roman Blocks](../imagesBarca22/RomanBlocks.jpg)
 
-A lovely hidden Placa (Plaça de Sant Felip Neri) showing shrapnel damage on walls from time between World Wars when children hiding in church were killed by bombing (reminiscent of Ukraine (Ucrania in es) as Oliver noted). 
+A lovely hidden Placa (Plaça de Sant Felip Neri) showing shrapnel damage on walls from time between World Wars when children hiding in church were killed by bombing (reminiscent of Ukraine (Ucrania in es) as Oliver noted). Sant Felip Neri was apparently a man with such a big heart that it was difficult to hold in which is why his hands are over his chest holding his heart in. The heart is also the symbol over the doorway. Lovely bit of lore. 
 
 ![Plaça de Sant Felip Neri](../imagesBarca22/PlacaNeri.jpg)
 
@@ -192,3 +192,51 @@ We walked back towards the nearest metro stop but it was only served by L4 and i
 Big steps for Dawn as we got home as she negotiated her own purchase of our baguettes (boy do we go through bread!) at our local shop. I went down to the Mercadona to get wine and trash bags. After dinner we relaxed with some The Good Doctor on Netflix (how have we not run into this before?). 
 
 Tomorrow is the day hike at Tibidabo with Jordi and Laura. Food and fun and maybe rain. Vamanos!
+
+#### 24/3/2022
+
+Crikey, are the days ever going to slow down? Each day has been a blast and has so much to integrate that it's no wonder I'm so tired at the end of the day. A number of the participants are still having some sleep disruption but mostly folks are settling their circadian rhythms (messed that spelling up initially!). Once again we gathered at the Cafe Zurich since it is adjacent to the Plaça Catalunya metro station which links a large number of lines. In this case we needed L7 (brown - linea marrón) which runs end to end from Plaça Catalunya to Ave. Tibidabo. Get on at the begining get off at the end. The only mild bit of excitement was that we lost Max for a few minutes and then we lost Jordi while Max found us. Eventually we all ended up at the platform and road the line to its end. At that point we hopped a bus (bus 196 according to one guide). We picked up the bus on the uphill side (on Ave. Tibidabo) of the metro station across from what Jordi thought might be one of the more exclusive restaurants in Spain. The image is from the interior side of the building. On the street side we saw the same wood slatted facing extends all the way down.
+
+> [Restaurant ABaC](https://abacrestaurant.com/en/) (Michelin 3 stars!!)
+Check out the video for a sense of the place. Three Michelin stars is a big deal. Good to know what I will always be missing. [This review](https://www.andyhayler.com/restaurant/abac) is fun to read as well.
+![Restaurant AbaC](../imagesBarca22/ABaCRestaurant.jpg)
+>
+
+The bus dropped us at the base of the Funicular de Tibidabo - Cuca de Llum. We could take this teleferico up to the ring road (Carretera de les Aigues in Catalan) that runs around Tibidabo that we reached by walking up a narrower trail. Possibly this teleferico would be included in our metro pass (the other one and the end of the hike was). Instead we walked up a road called Carrer de Guarda Anton which dead ended in a foot path that led us up to the ring road. Jordi said that the ring road runs for 10 km around the mountain and we saw many many runners and bikers on the roadway (dirt surface). It was clear that Brian N (a friend who will be visiting) would love the ride up Tibidabo but would be bored with the ring road. It was a lovely walk with constant views of the city and various landmarks. From this distance the communication tower on top is a remarkable piece of tech and we could see the Fabra Observatory as well as the inglesia (church which was very cathedral-esque) on top next to the amusement park. By chance Jordi's father was also out for a walk and we got to meet him briefly. We also saw a couple of wild boar (los jabalies) which are becoming a major problem in and around cities across Europe. Cute but dangerous.
+
+![Tibidabo Hike](../imagesBarca22/EveryoneTibidabo.jpg)
+
+The forest in this Mediterranean zone is a fascinating thing (Ella was very engaged in sorting it out). Pine forests with cacti, succulents, and agave in the lower story. We saw Iris' and other familiar species as well as what seemed like wild geraniums. Given that it is still late winter there weren't many clues about the varieties of the decidous trees. Familiar seeming seeming forest at one level and quite different when you looked at the details.
+
+After walking the ring road for a ways (3-4 km?) we came to the funicular on the next part of Tibidabo. After some discussion we opted to continue walking and climbing stairs (escaladas) up into the next neighborhood above the ring road. The area is a little bit like Forest Park in Portland in that it is a large green space with fingers and zones of population extending into the green space at differnt points. At this point we moved off the dirt road and onto stairs and city streets. Just before this point Dawn had a fun discussion with a woman walking her wire haired daschund (Avril). A lovely conversation about how they are ruled by their noses (in this case prone to chase after the jabalies if not restrained. It was a fun connection and I'm sorry I didn't get a picture. Shortly thereafter we crosse the Vallvidrera teleferico line and walked up a seemingly endless series of steps to eventually arrive at the top of the funicular. Still a very overcast day but we could see the shoulder of Montserrat off in hte distance to the NW and Jordi noted that the choir sings at the monestary there on Friday's if we decided to go. I don't think Montserrat is on this years cultural plan so we get to do it ourselves - yay!.
+
+Not that we'll forget but Dawn discovered her metro pass had fallen out of her pocket somehow at this point. Had to quick buy a pass to keep things on track. Frustrating for Dawn but the little beggars are just paper and easy to not notice.
+
+It's always fun to see how the funicular is set up. I hadn't really thought about it but it this case we could see enough on the trip down to observe some cool stuff. There is a single cable with a 'car' at each end. The cable is NOT continuous but acts much like a string over a pulley. With the weights at the two ends relatively similar the motor doesn't have to do much work to turn the pulley and move the cars. At the midpoint of the pathway the cars are guided to the side so they can pass each other and then returned to the center of the track. What you see is that for part of the journey there are two cables under the car and for part of the journey only one. Very cool. 
+
+From the end of the funicular we were about to head out into the street and noticed that a woman with a baby carriage had gotten trapped between two gates of the exit stall from the funicular. We tried to see if we could 'encourage' the doors to open but they wouldn't. She waved us off and called the transit folks and was free before we got out of the building. I wouldn't have known who to call though perhaps it's listed in the exit device somewhere. Anyway...we headed out down the hill into Villvidrera. We eventually turned west and paralleled the highway leading to Montserrat and eventually ended up at the [Tapia restaurant](https://www.google.es/maps/place/Tapia+Restaurant/@41.4022116,2.1082296,17z/data=!3m2!4b1!5s0x12a49835fe6e3f49:0x590b1d224bce36c!4m5!3m4!1s0x12a49835feb5dd33:0xc4b7ebfe58538082!8m2!3d41.4022116!4d2.1104236) for a traditional Catalan 'barbeque' dinner for our welcome dinner to the program. If was magnificent and we couldn't really eat everything. It started with a traditional Catalan winter dish of [grilled calçots](https://www.catalannews.com/society-science/item/calcot-onions-the-quintessential-catalan-delicacy). There is a learned technique for eating these which Laura and Iria demonstrated for us. The proper technique is demonstrated by Sandra.
+
+![Grilled Calçots](../imagesBarca22/calcot.jpg)
+
+![Calçot Ktechnique - demo'd by Sandra](../imagesBarca22/Calcottech.jpg)
+
+After the calçots as a starter we then were served the 'barbeque' which was basically a mountain of meat of various types. There was chicken, rabbit, sausages (pork), lamb, and maybe something else. Lovely to watch everyone dive into the choices with gusto. Only small problem was that most of us have never eaten rabbit so there was some good discussion about which pieces were consistent with our knowledge of rabbits.
+
+![Mountains of Meat](../imagesBarca22/MountainsMeat.jpg)
+
+Finally we got to finish with dessert and café. We now know that Nellie is an ice cream fan, the brownie was wonderful, and most everyone had tarta de queso (cheesecake) pictured below. 
+
+![Tarta de Queso](../imagesBarca22/TartaQueso.jpg)
+
+As we eased back from the table Iria and Luara said their goodbyes and headed off to various meetings. We had been at Tapia from about 1:30 to 4:00-ish. It is an interesting technique to push students to find their way walk away from them in a part of the city that they have never been too. Tapia is off the beaten track for most of what we will do with no obvious metro stations nearby. We walked downhill (as Jordi said - 'Downhill is towards the ocean' along Via Augusta until we crossed paths with the train lines headed for Plaça Catalunya. When we arrive at Plaça Catalunya we had to use our pass to exit the train platform (not sure if it charged us) and then we ended up exiting the train platforms and coming back into the metro at Cafe Zurich and riding home.
+
+Spent the evening catching up on emails, Dawn's Google slides, and this journal. Off to bed around 11:00.
+
+Iria sent around the QR code we all need to access the building each day. 
+
+#### 25/3/2022
+
+Slept in a little before getting up to hearty breakfast. Then headed off to replace Dawn's T-Usual. Then stopped at Banco Santander to see if I could start a Cuenta Mundo. They told me to go online. When I went online and called the bank (English line for money stuff) they said I had to go back to the branch office. Huh? I think the confusion is that, unlike the US, you can't just walk into a bank and talk to someone. I needed to go online to set up an appointment (cita previa) for a particular day and time. I set one up and we'll see if I got the correct branch when I show up.
+
+More about today later.....
+
