@@ -52,4 +52,10 @@ If I get some time it might be fun to go find Stan and say hi. His email and add
 
 ### Our Apartment:
 
-Today (3/16/2022) we heard that our apartment
+Today (3/16/2022) we heard that our apartment is at Carrer del Clot 182 3rd floor, 2
+
+### Acrobatics School
+
+This is just a temporary tag for future reference since it is just up the street from our apartment.
+
+[Atlantis El Surgir Del Arte](https://espaiatlantis.es/index.php/es/)
