@@ -225,7 +225,7 @@ Market/Plaça at Fort Pienc
 After passing the Plaça de Fort Pienc I noticed the Estació del Nord on the 'mar' side of the area. This rang a bell from somewhere but I only recently looked for more information about it. While it is still a bus station that serves medium and longer regional buses it is no longer a rail station. It was at one point the primary railway station for Barcelona. It now serves as a bus station, police station, and sports complex. This lovely building was used a a venue for the 1992 Summer Olympics in Barcelona. It was apparently the ping pong venue. Some day while Dawn is in class I'll have to see what it looks like inside. Outside it is quite beautiful. Not clear to me whether the beautiful facade is part of the original station or an upgrade from the Olympics. Worth a look for sure. 
 
 l'Estació del Nord
-![l'Estació del Nord](../imagesBarca22/EstaciodelNord.jpg)
+![l'Estació del Nord](../imagesBarca22/EstaciodelNord.png)
 
 As I wandered a little futher along the rambla (actually Carrer de Ribles) I found a small farmers market with everything from verdaduras to vermuth and honey. A bit rainy today so not a lot of fun to just hang around. As I looked up I could see the Arc de Triomf and realized that I was standing next to the metro access that I had explored from Google street view a month ago in Oregon. Lovely to feel like I knew where I was.
 
@@ -237,12 +237,12 @@ Earthwork in Parc de l'Estació del Nord
 It is also worth noting that the tree in the image above is very beautiful up close. I knew that Dawn would love the tree as potential drawing subject and she did when we came back later. Here is a closer view of a different tree.
 
 Magic Tree
-![Earthwork](../imagesBarca22/ParcEstacioNord1.jpg)
+![Earthwork](../imagesBarca22/ParcEstacioNordTree.jpg)
 
 This type of tree is found in various places around Barcelona and we are still trying to sort out exactly what kind of tree it is. Adjacent to these wonderful trees is a spiral labyrinth with trees planted within it like columns in a cathedral. 
 
 Labyrinth in Parc de l'Estació del Nord
-![Earthwork](../imagesBarca22/ParcEstacioNord1.jpg)
+![Earthwork](../imagesBarca22/ParcEstacioNord2.jpg)
 
 I eventually tore myself away from the park and walked out other end and found myself at a community football field where the various young people's league games were being played. I watched from that bridge on Carrer de Sardenya (the other cross streets in this part of town are Napoli (the school is at the intersection of Napoli and Casp) and Sicilia). It is amazing to watch the football intelligence in 12 year olds be so much better than most high school teams in the US. Even in the rain it was fun to watch. Eventually I headed back to pick Dawn up from her class. Along the way I passed the Mercat de Fort Pienc but this time I heard music to a dropped in to find there was dance group performing in the square in a lapse between raindrops.
 
