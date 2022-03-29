@@ -26,3 +26,31 @@ We talked about electric scooters a little bit today and I didn't have some of t
 [Navee N65](https://www.ebikechoices.com/navee-n65-electric-scooter-review/) This e-scooter which was released in Dec 2021 has a 600 Wh (0.6 kWh) battery which might reasonably get you 40 miles on a single charge. At least on the flat this would be reasonable.
 
 I feel better having this data.
+
+#### 29/3/2022 Tuesday
+
+Originally it was supposed to be rainy today but the weather pattern slowed and the rain moved to Wednesday. Lightning storms tomorrow (rayos and truenos , lightning and thunder). As usual I asked Laura later in the day what rule she had been taught about thunder and lightning. I appeared to ask the question appropriately in Spanish but she only knew that there was a rule but her family didn't have a particular one that they knew. Very intriguing -- I'll have to ask Jordi and Iria.
+
+Quick general overview of my plans for the music class in the am. Note to self: The folks at the front desk in the lobby don't know the names of the classrooms on the 5th floor. I confused them and they gave me the key for classroom 5 instead of 3 (Aula Gracia) that I thought I was asking for. Luckily Alba was in the office and e got it resolved. Further note to self: The sound only works through the large monitor not some other speaker set. After some discussion with the class it sounds like my model is much like the MUS213 World Music class that Nellie took. I need to spend some time formalizing the class structure over the weekend.
+
+After class Dawn and I had coffee with Iria and Alba just to make sure that we were all on the same page about both of our participation in the various activities of the program including the Spanish classes. Both Dawn and I felt pretty good about the classes and want to continue. Alba had some amusing stories about surprises with program faculty in the past which I won't repeat here. In our conversation Iria mentioned the [Origo Panaderia](https://www.origobakery.com/) as a place that they sometimes go out of their way to get to. It's actually pretty much just off the metro from us in Gràcia so we should go and see.
+
+After our coffee and snack Dawn led us home past the Mercat Enchants and [Museo de Disseny](https://ajuntament.barcelona.cat/museudeldisseny/en). Along the way we past the [Escuela Superior de Mùsica de Catalunya](https://www.esmuc.cat/), l'Auditori, and the [Museo de la Mùsica de Barcelona](https://ajuntament.barcelona.cat/museumusica/en). Lots of musicians and artists about. Definitely want to go visit the museum and there are multiple activities at the school and the auditorium that look like fun. Put all of them on the list to check out - whew!
+
+We went through the Plača de Glories instead of around by the Torre Agbar and found a park on the mountain side of the plaza. Pingpong tables, basketball courts, gardens, and grass. Very lovely in the middle of a major construction project.
+
+Stopped on the way home at the panaderia near the Mercat de Clot to get bread. Got a round loaf sliced (sliced on the spot not ahead of time) and a rustica type baguette. Dawn got us all the way home without much confusion.
+
+At home we both worked on our homework (tarea) for spanish class. I had an 80 word historia (story) to write and Dawn had worksheets to do. Then we spent a little time updating journals and google slide decks before heading back to Plaça Catalunya to meet the crew for a tour of Barri Raval and a discussion of immigration and gentrification. Along the way I asked to stop in Plaça Urquinoana to look for the Ememem mosaic art installation. We walked almost all the way around the plača before we found it on the SW corner. Image below. 
+
+Mosiac installation from Emememe in Plaça Urquinoana
+![Mosaic Art Plaça Urquinoana](../imagesBarca22/emememArt.jpg)
+
+As we walked the block from Plaça Urquinoana to Plaça Catalunya we passed a pen store and the display out front was so lovely we went into just look around. Made me think of Mark Eberle and his love of pens and colored inks. Perhaps I'll go back and get one for him before we go home. Some of the pens were just ridiculous in price -- over 1000&euro;!
+
+Feather pen sets....
+![Feather pen sets near Plaça Urquinoana](../imagesBarca22/pensMark.jpg)
+
+The meeting place was at the Hard Rock Cafe in Plaça Catalunya. Laura (SAE) noted that she had been by many times but had never gone in. Makes sense to me. This is where I found out she didn't have a rule for rayo and truenos. Dan was our guide for this experience ([Our Man in Barcelona](https://ourmaninbarcelona.com/)) and was wonderful. Dan is orginally from Sheffield England but has been here since his teens. Loves the place and the history and his focus for us was understanding the waves of immigration relative to the historical expansion of the ancient city of Barcelona. The Raval, west from Las Ramblas, has always been this remarkably crowded (currently 3x the population density of the rest of the city) and massively diverse (currently 50% not Spaniards). These days the Raval is mostly Philpinos, Bangledeshis, and Pakistanis. You want good curry go to Raval (lower half), need your cell phone fixed, go to Raval (also lower half), want some fabulous desserts same message. The upper half of Raval had a couple of important cultural buildings and renovations completed in preparation for the 1992 Olympics. CCCB ([Centre de Cutural Contemporania de Barcelona](https://www.cccb.org/en)), MACBA ([Museo d'Art Contemporani de Bacelona](https://www.macba.cat/en)) and the social sciences department of the Universidad of Barcelona. The thought was to draw a 'hip' crowd down into this part of the Raval to change it's image as a place nobody wanted to go. From there....
+
+...not quite done here....
