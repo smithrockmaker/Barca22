@@ -159,17 +159,20 @@ After 'lunch' we popped into the Farmacia across the street just to see what it 
 
 At this point we were almost our entry time for the Palau so we found our way back. After a little back and forth about the audio guide (scanned from a QR code to get the link) we entered up the stairs to explore. There wasn't much to do other than admire the ornate construction but we could hear a group singing in the theater so Dawn pulled open a door to see what it was all about while I explored to see if there was an entrance to the theater that seemed more welcoming. Eventually I found an entrance to the upper gallery where there were multiple people listening to the rehearsal (it seemed to be a rehearsal for a kids event). We pulled up a seat and admired the amazing glasswork which must be to admit natural light in a time when other forms of light were less available. It is quite spectacular though, as some reviewers have said, it seems like the only view of interest for an 11-14&euro; entry fee. We had the added pleasure of watching 100 or so young children, from various school choirs it seemed, being herded around the stage to have a rehearsal of a song and story presentation. Rarely have I had such a strong sense of herding cats. The sound was lovely in that school choir sort of way.
 
-![Tower at Palau de la Musica Catalana](../imagesBarca22/towerPalau.jpg)
+The ambiance at the Palau de la Musica Catalana. Lots of natural light from a time when operas were performed here before electric lights.
+![Auditorium at Palau de la Musica Catalana](../imagesBarca22/PalauCatalana1.jpg)
 
-![Tower at Palau de la Musica Catalana](../imagesBarca22/towerPalau.jpg)
+The famous glass ceiling at the Palau de la Musica Catalana
+![Glass ceiling at Palau de la Musica Catalana](../imagesBarca22/PalauCatalana2.jpg)
 
-![Tower at Palau de la Musica Catalana](../imagesBarca22/towerPalau.jpg)
+School choirs practicing for a performance at the Palau de la Musica Catalana
+![Children's choirs practicing](../imagesBarca22/PalauCatalana3.jpg)
 
 We entered the Palau at nearly the last time so we were chased out as closing time approached. Still, a nice visit and we helped contribute to a Catalan cultural icon. For me that makes fees feel better regardless to the particular value I get. 
 
 Dawn's Life Drawing class was still 4 hours away so we decided to head over to La Rambla (the official tourist one, we are finding that many walking zones are La Rambla as you might expect) and head for the statue of Christofer Colon (Columbus) that Oliver had mentioned as an ode to iron as a building material that allowed architects and designers new freedoms 150 years ago. As we started out from Via Laietana we passed a store that Dawn was drawn into a paper store at the street level because of some of the displays. Turns out to be [Raima](https://raima.cat/en/) which was a stunning store for papers and high end desk supplies. 4 floors of Pens, desk pad, organizers, and wall after wall of papers in inconceivable variation. There is even a bar on the top level. If the Oliver boys need origami paper I'll bet it can be found here. Somehow I didn't even notice the Tintin theme until we were on our way out. Captain Haddock, lots of role playing models from all the books, and that was even Nestor the butler out front. Crikey! Lee would have loved this.
 
-![Tower at Palau de la Musica Catalana](../imagesBarca22/towerPalau.jpg)
+![Tower at Palau de la Musica Catalana](../imagesBarca22/towerPalau.png)
 
 Once we finally extricated ourselves from Raima we headed over to La Rambla wondering if we would stay warm as the breeze off the ocean picked up at various times. We had not brought our outer coats since it seemed warmer and there was no rain in the forcast. We were just on the hairy edge of warm enough. We wandered down La Ramble until we got to the iron statue which I forgot to take a picture. Large column with pointing man on top - check!. More interesting was the harbor just on the other side of the statue. We negotiated the many crossings to get there and found that there was a Rambla de Mar that led out onto the harbor. There is a market out there but we were just delighted to get out near the water and see the harbor.
 
@@ -225,14 +228,14 @@ Market/Plaça at Fort Pienc
 After passing the Plaça de Fort Pienc I noticed the Estació del Nord on the 'mar' side of the area. This rang a bell from somewhere but I only recently looked for more information about it. While it is still a bus station that serves medium and longer regional buses it is no longer a rail station. It was at one point the primary railway station for Barcelona. It now serves as a bus station, police station, and sports complex. This lovely building was used a a venue for the 1992 Summer Olympics in Barcelona. It was apparently the ping pong venue. Some day while Dawn is in class I'll have to see what it looks like inside. Outside it is quite beautiful. Not clear to me whether the beautiful facade is part of the original station or an upgrade from the Olympics. Worth a look for sure. 
 
 l'Estació del Nord
-![l'Estació del Nord](../imagesBarca22/EstaciodelNord.png)
+![l'Estació del Nord](../imagesBarca22/EstaciodelNord.jpg)
 
 As I wandered a little futher along the rambla (actually Carrer de Ribles) I found a small farmers market with everything from verdaduras to vermuth and honey. A bit rainy today so not a lot of fun to just hang around. As I looked up I could see the Arc de Triomf and realized that I was standing next to the metro access that I had explored from Google street view a month ago in Oregon. Lovely to feel like I knew where I was.
 
 From there I wandered back toward l'Estació and the park on the ocean side. This large park, Parc de l'Estació del Nord is clearly very dog friendly but also has a number of lovely features. The image below shows one of the large ceramic earthworks in the park. The other is at the entrance. Both are beautiful.
 
 Earthwork in Parc de l'Estació del Nord
-![Earthwork](../imagesBarca22/ParcEstacioNord1.jpg)
+![Earthwork](../imagesBarca22/ParcEstacioNord1.png)
 
 It is also worth noting that the tree in the image above is very beautiful up close. I knew that Dawn would love the tree as potential drawing subject and she did when we came back later. Here is a closer view of a different tree.
 
@@ -246,38 +249,43 @@ Labyrinth in Parc de l'Estació del Nord
 
 I eventually tore myself away from the park and walked out other end and found myself at a community football field where the various young people's league games were being played. I watched from that bridge on Carrer de Sardenya (the other cross streets in this part of town are Napoli (the school is at the intersection of Napoli and Casp) and Sicilia). It is amazing to watch the football intelligence in 12 year olds be so much better than most high school teams in the US. Even in the rain it was fun to watch. Eventually I headed back to pick Dawn up from her class. Along the way I passed the Mercat de Fort Pienc but this time I heard music to a dropped in to find there was dance group performing in the square in a lapse between raindrops.
 
+Dawn had a good class and was exhausted which is always a surprise for me. She is amazing! We walked back to where the dancers were but, perhaps due to the rain beginning there were no signs of an imminent performance - rats. Because of the rain starting we stopped into a nearby 'bar' for a coffee and croussants with jam (mermelada - important word for us to know). After some food and coffee we went back around l'Estacion del Nord to show her the front of the building (image above). As we rounded the corner into the park we found ourselves in the midst of a open air dancercize class. Impressive to see 40 folks out in a light rain rockin' it as best they can. 
 
- 
-went to pick up dawn - good class no injury
-walked back to see if dancers dancing - no luck
-coffe and couissant with mermelada for dawn
-walked back to parc so dawn could see tree
-came across fabulous dancercize class - awesome
-dawn played with dacshund
-captivated by magic trees and labyrinth
-walked over the Marina metro stop but only raining lightly
-walked up street to Palau de Musica
-then to Mercat de Encants (thrift bazaar)
-then across to Placa de Glories (Museo de Disseny)
-marvelled at Torre Agbar with slats
-crossed street to go up Meridiana towards home
-stopped to check out Centre Cultural la Farinera del Clot
-noticed concert for tonight
-walked back up C del Clot towards home. 
-Stopped to visit Mercat del Clot hrs
-went home
-went shopping
-signed up for concert reservations
-had dinner
-went back for concert - awesome!!!
-Walked home past heavily populated bars
-went to sleep and lost an hour due to Spanish daylight savings time.
+Dancercize class at Parc de l'Estació del Nord
+![Earthwork](../imagesBarca22/PdNDancercize.jpg)
 
-Oliver: +34 675 11 25 44
-correoguiaocs@gmail.com
+After admiring the dancers for a while we went around the park to see the cool trees mentioned earlier. Along the way there was a tiny daschund that was playing fetch with its owner. It got distracted and lost track of the ball so Dawn helped it find the ball. Her good deed for the day. When we got to the trees Dawn was captivated by their appearance. Very Chinese brush painting sort of trees. The structure of the labyrinth was also fascinating and a potential drawing site. 
+
+Because it was only raining lightly we opted to try and walk home via a new route to see what we would find. I partly wanted to connect the Torre Agbar (the bullet) in Dawn's mind to how she might get home if lost. As it turns out (hadn't put it together yet) the street that we had walked along a couple of times that has the 'tram' (surface train) running down the middle is actually Meridiana on the other side of Plaça de Glories. As we walked up Meridiana on the ocean side of the plaça we passed a couple of buildings labeled [l'Auditori](https://www.auditori.cat/en/home) which turns out to be Symphony hall and some smaller performance spaces. It's a imposing building every time we walk by it but we haven't been around when there is a performance so have no sense of how it might change when people of around. We also noticed the the Museo de la Musica is in this complex along with a music school. 
+
+Across the street from symphony hall on the way home is the Mercat Enchats which is a thrift shop market at least partly. There are a host of small shops selling a range of household goods and collectibles. On the main floor it was mayhem with thrift sellers of all kinds trying to get your attention and make a sale. Clearly a place where the price of an object is what you will pay for it if you can get the owner to agree. The smaller rented store spaces around the edge seemed less like bargaining operations but possibly some flexibility there as well. Interesting to wander through and Dawn got a comb she needed. We exited the scrum and continued on home.
+
+Walking around the Plaça de Glories we passed in front of the Museo de Disseny which we will also have to get back to. They have programs as well as installations. The building is a fascinating modernist cantilevered design with lots of public space around it. Many nooks that we will explore later I suppose. When we got to the Agbar tower (the bullet) it was interesting to see that the exterior skin appears to be glass louvers. Some are open, some are closed, and the inner surface of the building has some pattern of color on it we couldn't quite sort out. This [architectural wiki site](https://en.wikiarquitectura.com/building/agbar-tower/) seems like it has all the answers if I ever have time to look through it. We'll have to go look at it at night during Easter to see if the lighting responds to the holiday weekend. 
+
+From the Agbar tower we crossed the plaça which is very messed up with construction and came across the Centre Cultural la Farinera del Clot which is built in the old flour mill from some time ago. We looked inside (good public restrooms - a find) and took a quick look around the gallery. On the bulletin board was a flyer for an acoustic concert today. Reservations seemed to be required. Carrer del Clot ('our' street) intersects Meridiana just around the corner from La Farinera. Dawn's landmark is the Audi store on the corner with window display with cars up several stories. Coming around the corner on Carrer del Clot is a low 2 story building that is becoming one of Dawn's favorites. After all the tall apartments everywhere seeing a human scale building (seems like individual family homes) is comforting. As we walked up C de Clot we stopped into our local Mercat de Clot to get a sense of what was available. Lots of fresh meats, fish, veggies, and cheese. A bit overwhelming and not so much what we needed to shop for today so we checked the hours (M - am until 14:30, T-F all day until 20:00 with break 14:00-16:00, S all day until 21:00, Sun - closes at 15:00) to be filed away for future reference. 
+
+After we got home we grabbed the shopping bags and did a quick trip to the Mercadona. After that I sat down and tried to navigate the reservation site at La Farinera - in Catalan since its a Catalan cultural center. Given that I received a confirmation back it would appear that it worked! Later on that confirmation was presented at the desk to get the ticket so we could go back to the admission line and wait there. The theater is a lovely space on the 4th floor. Like many renovations of old buildings here the stairs and elevators are their own architectural object integrated onto the outside of the old building. Fascinating to see 200 people of all ages walk up 4 floors to get to the theater. The elevator was only used by those with mobility challenges.
+
+The concert was amazing. [Valeria Castro](https://www.valeria-castro.com/) was wonderful to hear with her talented sideman. The earings she was wearing for the concert were just as large as the ones she is wearing in the image on the landing page. A quick youtube search will give you a sense of her music. She is from the Canary Islands and sang songs mostly of love and family. Very beautiful. It was intriguing that she start by essentially apologizing for only singing in Castellano given that she was in a Catalan cultural center. The audience clearly loved her and sang along with gusto when invited to participate. All in all a great evening. The only challenge was for me. I'm discovering that most places where people sit or stand are designed for a noticeably shorter person than me. Whether it's door jambs getting into the metro or, in this case, the space between the seats and the height of the seat. 90 min sitting is a smaller space than my airline space was occasionally challenging. Next time I need to really try to have an aisle seat so I can occasionally extend my legs. Whew.
+
+As we walked home at 22:00 on a Saturday night the bars were full of people even with the cool and potentially damp weather. Not a noisy as it would be for US bars and very little sense of drunkeness. Just people out to be with others primarily and to enjoy a little food and drink. All very civilized:) We lost another hour overnight as Spain went to daylight savings time. Lost an hour of sleep twice this year.
+
+#### 27/3/2022 Sunday
+
+I now (almost a week later) have no fuctional memory of this day. It is lost. I spent a good part of the day updating this journal and I'm still very far behind. Did a little thinking about classes this week since we're starting Monday. ....lost
 
 
-Sunday
+#### Reference for Sanchéz Oliver Casado (Oliver for the Anglophone community)
 
-most of day updating journal and thinking about other things to try or places to get to.
+Since it will probably disappear into my email dungeon and be lost to memory here is the response I got from Oliver about possibly setting up a smaller guided experience with him.
 
+>Dear Bruce & Dawn,
+>
+>Nice to hear from you 😄. It´s been hectic last week so I apologize if my answer took a little too long. About your e-mail, let me tell you that normally Official guides work with previous reservation, which means that I,m already booked for some days in April, May and June...and the first thing we need to know it´s the exact day of your possible visit. When it comes to prices, that depends on time, let´s say a Half Day (4 hours) or Full Day (8 hours). I,m an Official Free lance Guide of Catalonia, and work for several agencies...if you book a guide for you, we should also consider the amount of people to make up a suitable price that suits us both...if that would be the case, I would adapt to your interests (history, art, society, past and present...)
+>
+>Thanks again for contact me and....have a great day
+>
+>Oliver: +34 675 11 25 44
+>correoguiaocs@gmail.com
+
+I'll have to figure out what agencies he works with and try to take it from there.
