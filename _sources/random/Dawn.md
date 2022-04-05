@@ -61,3 +61,11 @@ Dawn loves kettlebell training. There is at least one training facility in Barce
 ### Blues/Swing/Jazz Dancing:
 
 Dawn and I met dancing and we imagine that if we are at a loss for something to do we might go hunt up the swing dancing groups in Barcelona and see what they are doing. [BCN Swing](https://www.bcnswing.org/escoles-de-ball/) is a website that aggregates all the many dance opportunities of this type.
+
+### Rucs de la Serralda
+
+This is a [donkey farm](https://rucs.cat/) that offers rides for children near Barcelona. We're trying to find ways to get out of town into the villages and farm country to see life outside of the city. [Can Gel](https://www.can-gel.com/es/) is dairy farm that offers tours of it's operation and some samples. 
+
+### Getting out of the city via Train
+
+We were introduced to Daniel at the Kettlebell studio who is originally from Phoenix but has been living and working in Spain for the last 18 years mostly in Madrid (currently working in Barcelona). I asked him about getting out into the countryside and he noted that you can ride the train out and get off a one stop and walk to another stop and get back on. This keeps you from getting totally lost but at the same time allows you to walk between small villages. He has recently been to Vic which is at the end of one of the linesto do some walking.

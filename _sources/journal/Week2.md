@@ -83,12 +83,48 @@ El Pequeño Elephante -- The Elephant'c Child
 
 #### 31/3/2022 Thursday
 
-updating stuff
-Museo de Musica
-Beach/Bus
-SF
-Thunderstorm
+Thursday was yet another day where rain is predicted. Today was the big thunderstorm that kept getting push off from earlier in the week. We spend the morning updating various task like this journal but I'm still coming back to the the next week to catch up on writing I just couldn't keep up on. The rain was still threatening so we decided to walk to the Museu de Musica at l'Auditori (symphony hall). This is relatively close and just on the other side of the Plaça de Glories. The museum in fabulous and quite inexpensive. Here are a group of images to give a sense of what we saw. Everything is in glass cases so there are plenty of reflections.
 
+A collection of old flutes -- the nearest one is glass for crying out loud!
+![Glass Flute](../imagesBarca22/glassFlute.jpg)
+
+An old bassoon with only fingerholes like a recorder. Very cool!
+![Bassoon without the fancy metal](../imagesBarca22/realBassoon.jpg)
+
+Sagbut (front view)
+![Sagbut front](../imagesBarca22/Sagbut1.jpg)
+
+Sagbut (rear view)
+![Sagbut rear](../imagesBarca22/rSagbut1.jpg)
+
+Early tuba
+![Tuba for Barry](../imagesBarca22/tubaBarry.jpg)
+
+Mechanically amplified open frame violin -- wicked.
+![Mechanically amplified violin](../imagesBarca22/violinAmp.jpg)
+
+I don't know....
+![Hard to know what this is...](../imagesBarca22/whatThis.jpg)
+
+The weather seemed a little better so we walked a block to two to the Torre Agbar (bullet) and then straight down Independecia to the beach. About 1 km. One disconcerting thing happened as we arrived at the beach. As you go to cross the pedestrian walkway over the freeway all you can see in front of you is the entrance to a McDonald's restaurant. It appears that you must go through the McD's to get to the beach. A quick glance at the neighboring walkway shows that it also ends in a restaurant. As it turns you only have to walk around the restaurant on the patio but it is a huge two story version of McD's. Must do a booming business in the summer.
+
+The beach was lovely and we walked out to the end where they had formed large cubes of concrete and dropped them in a jumble at the end of the causeway. This provided a range of tilted flat surfaces for people to lie out on etc etc. It was very nice to sit there in the sunny and feel the ocean breezes and smell the sea -- perfect for Dawn. 
+
+On the way back Dawn noticed that there is a lovely sundial just where the walkway comes down to the sand between the Platja de la Nova Icária and the Platja de Barcelona. I will have to get started sending students out to find the sundials on the Barcelona Sundial Trail
+
+Sundial south of Platja de Barcelona
+![Beach Sundial](../imagesBarca22/beachSundial.png)
+
+We rode the V23 bus back just to get a sense of how it goes. The V23 will be an easy way (on Independencia) to get down to the beach to walk in either direction. 
+
+After we got home we organized a few things and then we were off to a kettlebell class for Dawn. While she was in class I explored uphill away from the sea and eventually found myself at La Sagrada Familia. I don't know why I expected that it was in a large open plaza but that was my impression. It is NOT. This startlingly large edifice feels squeezed into the space. It is stunning to look at and I stood back in the park and just looked for a while. Due to the impending rain there weren't many people around but it's clearly prepped for tourists generally. I'll need to bring Dawn here soon to have this same experience of it's external size before we take a tour.
+
+Sagrada Familia: First impression
+![Sagrada Familia](../imagesBarca22/SFFirstView.jpg)
+
+As I walked back to pick up Dawn it began to rain more substantially and there was actual thunder and lightning. I half expected to see one of the tall buildings hit. One flash, directly overhead, was followed so closely by the thunder that it can't have been more than 100 m or 200 m away. Very very close. Interestingly nobody seemed particularly concerned which perhaps confirms my sense that lightning is not common and kids are not taught the timing rule to know when it's time to get off the soccer field or baseball diamond. I'm going to keep asking. 
+
+Just as I got to the Kettlebell studio the sky opened up and it poured. Dawn had an umbrella but none the less we got very wet walking 3 blocks to the metro. Wasn't raining to speak of when we got off the metro in el Clot so the last couple of blocks home weren't so bad.
 
 #### 1/4/2022 Friday
 
@@ -109,7 +145,7 @@ We had a pleasant ride up though even at 8:16 the train was a good bit more crow
 Enough about travel details!! We arrived at Monistol Montserrat on the first cable car of the day. There were only 8 of us in the car so everyone got a 'window seat' which was lovely. I didn't realize until we were out in the open air that some of the window were actually only partly glassed so the wind was howling through the tin can that was the cable car. Later in the day when Sandra came up she said it felt like sardines in a can they were packed in so tight. I chatted with the operator on our way back and he said that 2 or 3 days a year the wind blows hard enough to swing the cable car enough to risk hitting the towers and then they shut it down -- can hardly imagine.
 
 From the cable car .... sorry about the reflections
-![Voiew fropm Aeri cable car](../imagesBarca22/AeriView.jpg)
+![View fropm Aeri cable car](../imagesBarca22/AeriView.jpg)
 
 There is a short walk from the Aeri arrival station up to the base of the monastery complex. Guidance seemed a little unclear but we found a set of stairs that took us up to the main plaza outside an imposing building that turned out to be the basilica. The normal church like front was hidden inside the building which is a bit different. We walked around the plaza and looked at the stunning views. The image below was taken later in the day but you can get a sense for the overall setting. There are lots of great images online but I didn't take any photos in the plaza. Seemed pointless given the web.
 
@@ -172,3 +208,113 @@ Model for Dawn's next studio....
 Finally, I'll include my happy face being out of town and surrounded by trees again. Both Dawn and I are such country mice.
 
 ![A Random Hiker](../imagesBarca22/MSBruce.jpg)
+
+#### 2/4/2022 Saturday
+
+We spent the morning letting Bruce panick about catching up on his journal and his class prep. Dawn did some work on her google slide deck and laundry. We did drop a pillowcase that was hiding in a sheet off the edge. We'll see if our neighbor two floors down leaves it where we can find it.
+
+After random panicking from Bruce we left the house around 12:15 headed for Plaça Espanya again. This time we came up above ground and it was pretty obvious which direction to go to explore Montjuic. Lots of tour buses around and plenty of crowds as well. It is getting a little old being around so many people all the time. Nevertheless we walked up towards the [Magic Fountain](https://www.barcelona.cat/en/what-to-do-in-bcn/magic-fountain/magic-fountains-show-times). None of the fountains were running but they were still pretty. Didn't really have a sense of what we ended up seeing on our way back. Apparently the fountain shows have not been running for two years during COVID. When we came back down the fountain was running in what is called 'ornamental mode' Very pretty and tons of water is moving over the many levels. The shows are a whole different thing and start at 9:00 pm (21:00). I'm sure we'll go back sometime to see the whole shebang. 
+
+Magic Fountain in ornamental mode with bubble maker included gratis!
+![A Random Hiker](../imagesBarca22/MagicFountain.jpg)
+
+From there we walked further up towards the Palau Nacional de Montjuić we tracked SW up a different set of stairs. Just as a side note this area would be a stair climbers heaven. Lordy there are a lot of stairs. Because so many people clearly like to make their way around this part of Montjuić there are outdoor escalators parallel to many of the stairs. Something I've never seen before but totally understandable. There' plenty of up even if you use the escalators. Going up the stairs we took we ended up looking into the back gardens of a lovely building which appears to be the Monestir de Sant Miquel. From there we realized that the direction we wanted was downhill a bit (tough choice to give up altitude) we headed around the SW side of the Palau. Shortly Dawn heard some music that seemed like it was gamelon music so we pursued the sound down a dirt track that took us past the Hipica la Foixarda (horse riding facility) and up to a lot where we peered in through the service gate. Turned out to be digital tunes (probably gamelon) for a possibly private party. (the party sounds were still going on several hours later when we returned) Disappointed we returned past Hipica la Foixarda and looked at the horses and scratched a pony on it's nose. There is a restaurant at the edge of the training ground but it seems a little like a golf course (campo de golf) clubhouse. Tables with place setting and china - when we came by later it seemed very busy with large tables of 8-10 people which might have been a private party again. Very noisy. Anyway....
+
+As we returned towards the Palau we realized we were walking along the edge of an enormous pit which must have been one of the quarries from which the stone was extracted for the monumental buildings all over Barcelona as Oliver mentioned on the tour a week or so ago. Later as we walked back we saw some folks on a trail in the bottom of the pit but we didn't see how to get down.
+
+Quarry pit on Montjuić
+![Quarry Pit](../imagesBarca22/QuarryPit.jpg)
+
+More stairs past the quarry pit and we found ourselves just below Plaça Europa where I could see the giant communication tower that shows up in many pictures of Montjuić. Directly in front of us was the Olymic pool for swimmers. We were begining to see signs of Olympic stuff all around. Walking around the pool we entered the plaza to the sounds of monster trucks which were doing a show in the Palau Sant Jordi. Part of my reason for getting up here was to verify that it was potentiall a goog place to try to view the May 16 lunar eclipse from. The western horizon was indeed visible from this location. This would work though there may be more accessible sites. 
+
+Plaça Europa looking towards the horizon
+![Plaça Europa](../imagesBarca22/PlacaEuropa.jpg)
+
+This plaza is in front of the Olympic stadium and the columns in the image are lit from the inside. It appears that they are currently renovating the exterior of the columns which appear to have yellowed from UV damage perhaps. We walked up more steps to the Olympic Stadium (which we hadn't quite yet realize that's what it was) so Dawn could look at the sculptures of the horses and chariots at the top of the stadium wall. Binoculars needed for sure. We tried to walk around to the south side of the stadium but found the way blocked by closed fence. Note to self: When, in a public space, you don't see anyone going along a particular path it is likely to be blocked. Lots of construction blocking roadways and paths. We retraced our steps and passed a beautiful example of an ombu tree on the corner of the upper entrance to the park. A bunch of kids from the recently finished Monster Truck show were having a grand time climbing on it like a tree fort. 
+
+Exiting the plaza we turned uphill and walked around the stadium and found an entrance that appears to be left open so visitors can access the gift shop and see inside. Impressive statium though perhaps not a big as Camp Nou. The interwebs say the Olympic stadium has a capacity of 60,000 and Camp Nou can hold almost 100,000.
+
+Olympic Statium (Estadi Olímpic Lluiś Companys)
+![Olympic Stadium](../imagesBarca22/OlympicStadium.jpg)
+
+Continuing around the stadium and upwards we found the [botanical gardens of Barcelona])https://patrimoni.gencat.cat/es/coleccion/jardin-botanico-de-barcelona). These wonderful gardens are specifically aimed at sharing the plant ecologies of multiple regions around the world that share a common climatic environment with Barcelona. This includes parts of the eastern Mediterranean, Califormia, the Atlas Mountains in N Africa, SW Australia, the Canary Islands and a couple of others that I'm forgetting. Is was a lovely quiet respite from the busy and crowded city. For us (somos viejos) admission was only 2.50&euro;. We sat and had a snack on a bench in the gardens. After snacks we continued wandering around the perimeter of the garden. 
+
+Lunch in the Botanical Garden of Barcelona
+![Botanical Garden of Barcelona](../imagesBarca22/GardenLunch.jpg)
+
+In the California section of the garden we found this lovely amphitheater where we also encountered our friend from home, the ubiquitos magpie. This one and it's family appeared throughout our walk. 
+
+Amphitheater in California section of the Botanical Garden of Barcelona
+![Amphitheater in Botanical Garden](../imagesBarca22/GardenAmph.jpg)
+
+Our corvid friend....
+![Magpie at the Botanical Garden](../imagesBarca22/FriendHome.jpg)
+
+From the rise just above the amphitheater we could see out across the south side of Montjuić towards the airport and the sea. There were a series of what looked like apartment buildings that Dawn noticed but something didn't quite match. The binoculars quickly revealed that they were mausoleums (mausolea?) with crypts - points out the challenge of burying people over hundreds of years in a place with so many people.
+
+Barcelona Cemetary in Background....
+![Crypts of Barcelona](../imagesBarca22/GardenCrypts.jpg)
+
+We had noticed that the gardens had a Bonsai area and walking the perimeter of the garden enventually dropped us right there at the NE corner. It is a lovely display and totally worth the visit. The 30 or so they had out for the public were stunning and possibly the best display of the art of bonsai that we have ever seen. We had a lovely conversation with the guard as we left since Dawn was curious if she could come back and sketch. His sense was that as long as you were not setting up an easel no permissions were needed. Photographers with tripods are required to get permission. The conversation continued into his pleasure at working this quiet and clean environment at the gardens. Much different that where his apartment is. All the trees sat on basalt columns that he didn't know where they came from. He pointed that part of the reason that they keep visitors back from the trees is that they are balanced on slabs on top of the basalt pillars (pilar de piedra) which tend to rock when visitors touch them. They now have so many wonderful bonsai that they are planning a new larger outdoor display with benches/tables to display them on which would reduce that risk. 
+
+Bonsai Garden
+![Crypts of Barcelona](../imagesBarca22/GardenCrypts.jpg)
+
+When they get that new facility built it will be an absolutely stunning exhibit. The master gardener who keeps all the bonsai is clearly a generous soul. During the entire time we were viewing the bonsai he was in deep conversation with some other visitors about details of watering, fertilizing, and caring for these trees. Bonsai is a remarkable art as anyone who has attempted it can attest and it is relatively easy to screw up and kill a tree. Given that some bonsai are cared for over hundreds of years that would be heartbreaking. These bonsai were really beautiful and well cared for. 
+
+It was getting later in the afternoon as we exited the botanical garden so we started to make our way back down to Plaça Espanya. As we did so it seemed like there were an awful lot of people at the magic fountain. This turned out to be because they were turned on in their ornamental mode (described above) and the evening show would be only the second one since COVID started. It appeared that people were hanging with friends on the steps and viewing areas while possibly waiting for the evening show in 4+ hours at 21:00. We were getting hungry so we opted to make our way down enjoying the fountain from various levels and head for home to eat. 
+
+The plan was to try out Melosas across the street from our apartment but when we got there at 5:00 there was a sign in the  window that they were closed until 20:00. We went home and had a snack and watched some TV and went back at 20:00. Melosas (Mellow) is well reviewed as one of the best hamburgersarias in Barcelona. We found everything to be tasty indeed though not cheap. The Melosa is not a burger in the American sense (egg, pork, and onion I think) and we got patata brava for 'french fries'. Friendly staff who were duly horrified when Dawn noticed a cockroach under a nearby table. Wonderfully full when we left and we'll probably come back from time to time. Several Door Dash food delivery folks outside the door waiting for orders and many take out orders so it is clearly popular. Sorry, no insta photos of the meal.
+
+#### 3/4/2022 Sunday
+
+Plan today is to go back to Montjuić to see if we can get into the Miro Museum (free Sunday and all)
+
+We started today with a plan to go back to Montjuić to see the Miro museum (known as Fundació Miró). Dawn found a page of different suggestions for [how to get there](https://www.fmirobcn.org/en/visit-us/camins-a-la-fundacio-joan-miro/) by different routes. Today we took the Satalia path because it seemed relatively easy to find from Parallel (straight shot for us on Linea morado) and we had ascended Montjuić yesterday from Plaça Espanya which is sort of like the Laribal Gardens path. Perhaps we'll try the others in the future. The path we took basically went straight up C. Margarit (my mom's name) which is mostly a side road so no traffic. Only one long set of stair at the end and you're less than 100 m from the entrance to the Fundació. 
+
+As we walked up this route behind us there was a 30-40ish woman with a cane walking slowly up the same path. She wasn't going as fast as us but she never stopped. She had an old dog (grey muzzle etc etc) that dutifully followed her up the steps looking pretty much how I felt. When she got to the top of the stairs she did some PT exercises which was the last I say of her. It would like meeting somebody walking up College Way and then turning in heading up the stairs to Grandview as if it were the most nartural thing in the world - with a cane and weak leg. Just one of those moments where you feel a bit of the cultural distance between here and home.
+
+When we went into the museum there was some hope that we might get in free because it was the first Sunday of the month and many museums etc are free on that day. No such luck here. We ended up getting an Art Passport that combined admission to six museums on one ticker for only 35&euro; which was half the normal price for the passport. Only gets you one admission but seemed reasonable. In we went and for the next two hours we explored the incredible collection they have. The details of that exploration can be found in Dawn's google slide deck. Some I really liked and some mystified me. Par for the course. I did love the Calder water fountain that he donated to the museum because of his affection for Miró. Calder's work is often kinetic and if you look closely along with the moving water it exits and muchs on the balanced pole to make it move in what is probably a chaotic way. Very cool! It was also fun to see his notebooks and hear that he often worked in series and explicitly set aside works for his wife and daughter to hold in their personal collections. A lovely vision. I certainly feel like I've got a better sense of the guy. 
+
+Calder sculpture in Fundasció de Miro
+![Crypts of Barcelona](../imagesBarca22/MJ1CalderFont.jpg)
+
+After the museum it was dripping a bit, more of a drizzle rather than rain. We thought we might make it to the top of Montjuić with some luck and perhaps we'd take the teleferico down afterwards. As it turns out we got distracted by a park shortly after we started up (what, you're surprised?) and diverted into a park that had lovely duck ponds (occupied by seagulls) and the wonderful cascade of lily ponds that had caught our attention. 
+
+Cascading lily ponds on Montjuić
+![Crypts of Barcelona](../imagesBarca22/MJ1LilyPond.jpg)
+
+The other fascinating thing that we noticed as we looked around is that a number of families had planned for the weather to be better today (it was fabulous yesterday) and had planned a picnic. Not to be disuaded they just moved the picnic underneath the trees - not in a planned picnic area but just on the park turf where the branches hung low and shielded them from the drizzle. We took notice and found a place at the top of the lily ponds where it was dry and sheltered and had a good snack that Dawn had prepared this morning. Delicious!...and dry!
+
+Lunch in the style of Barcelona on a drizzly day.
+![Crypts of Barcelona](../imagesBarca22/MJ1DrySpot.jpg)
+
+After snacking we continued on up the hill. It is truely amazing how many paths going in every conceivable direction there are on Montjuić. The go everywhere and most are not labelled in any meaningful way. There are some way that seem to suggest a direction but you just know that you will hit two other intersecting trails shortly that won't be labeled. Fun for me but maddening for Dawn. As we walked up we spotted the 'tobbagans' (slides)that I had seen on the map. Wasn't sure what to expect but they appear to be luge level slides that go significant distances down the steep hill. Catalans clearly have a different relationship with self preservation than current Americans. Nobody was on the slides today because they were wet but I suspect we'll get to see some later in our time here. **Just a note:** Somewhere in the same area is a pair of parabolic reflectors that allow you to whisper across a distance due to their shape. Didn't find it today but sometime would like to.
+
+We topped out at Castell de Montjuić and had some wonderful views as the drizzle got a little stronger. As we looked over the edge at the port we noticed a trail leading down the ocean side face of Montjuić. Cable car or trail? We'll decide later. In the meantime we went went to the Castell and found that it was indeed free on the first Sunday so we went in a walked up to the upper levels to get better views of the city. From one of the upper levels we looked out across Barcelona and were very conscious of the size and density of the city that filled in everything from the Barceloneta to Tibidabo. 
+
+Garden at Castell de Montjuić
+![Crypts of Barcelona](../imagesBarca22/MJ1JardinCMJ.jpg)
+
+The port from Castell de Montjuić
+![Crypts of Barcelona](../imagesBarca22/MJ1Port.jpg)
+
+Barcelona from Castell de Montjuić. We live pretty much halfway between the Sagrada Familia (to the left) and Torre Agbar (the bullet shaped building to the righ)
+![Crypts of Barcelona](../imagesBarca22/MJ1BarcaScape.jpg)
+
+Dawn in the Rook
+![Crypts of Barcelona](../imagesBarca22/MJ1DawnRook.jpg)
+
+Bruce in the Rook being reminded he's taller than he thinks
+![Crypts of Barcelona](../imagesBarca22/MJ1BruceRook.jpg)
+
+We decided to walk down the trail on the ocean side of Montjuić partly to see the views. Along the way the trail moved from a sandy path (sendero) to a concrete path but they builders had embedded various recycled materials to create mosaic like patterns that were really lovely. Cut ends of roof tiles (straight and curved), flat pebbles turned on edge, bottoms of glass bottles, gears and bent metal strips (at least a few mm thick), and other found objects. It was really beautiful. We also saw many stunning examples of the Ombu trees as we came down this trail. Definitely a place to come back to for sketching.
+
+Pathway texture coming down from Montjuić
+![Crypts of Barcelona](../imagesBarca22/MJ1TextureWalk.jpg)
+
+When we reached the bottom just a couple blocks from the Maritime Museum we walked towards La Rambla and finally found a pasteleria to have a coffe and a sweet roll. It was wonderful to sit down and enjoy and drink and a sweet after the long walk. It was close to 17:00 at this point. I was struck by a english speaker who was ahead of me in line who hadn't learned even simple daily use phrases to point to things and help the counter staff know what he wanted. You are nearly always asked - Para aqui o para llevar? He had not idea what was being asked. Probably a bit like I felt in Moscow trying to negotiate Russian but still.....
+
+After this short break we walked across the bottom end of the Raval barri to La Rambla (which was pretty jambed) and then up La Rambla to cut into the Gothic barri and get to the Cathedral. From there Dawn was pretty much able to get to Via Laitanna and find her way to the Palau de la Musica and from there to the life drawing class. I left her there and took the metro home to spend an hour working before coming back to get her. Good session as it has normally been. Some wonderful sketches as usual. I'm starting to recognize some of the regulars. Home to have dinner and sleep:)
+
+**End Week 2:**
