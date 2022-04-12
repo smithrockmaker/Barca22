@@ -59,3 +59,11 @@ Today (3/16/2022) we heard that our apartment is at Carrer del Clot 182 3rd floo
 This is just a temporary tag for future reference since it is just up the street from our apartment.
 
 [Atlantis El Surgir Del Arte](https://espaiatlantis.es/index.php/es/)
+
+### Urban Gardens:
+
+https://www.barcelona-metropolitan.com/features/ah-for-a-garden/
+
+https://ajuntament.barcelona.cat/ecologiaurbana/en/what-we-do-and-why/green-city-and-biodiversity/urban-agriculture-strategy
+
+https://urbag.eu/about/
