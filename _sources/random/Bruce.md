@@ -30,6 +30,10 @@ This is a network of makerspaces/fab labs that appears to be supported at least 
 
 [TransfoLAB BCN](https://www.transfolabbcn.com/) This very cool makerspace seeks to address a number of issues and projects related to the repurposing or reuse of waste in many forms. It has a makerspace but also residencies and an informal learning academy. Many classes are offered for students of different ages. Looks like a very cool space. Just a few blocks towards the beach from ATTA33 noted above.
 
+[MOB Makers of Barcelona](https://mob-barcelona.com/) is a coworking space with a Fabcafe outside the coworking door. In the past the Fabcafe has had various events but COVID appears to have disrupted this a lot. The Fab tech is in house from 10:00 - 15:00 each day. When we dropped in they suggested there was something connected happening next door. The address is C/ de Bailén 11 at the top of el Born not far from the Arc de Triomf.
+
+Hanger
+
 ### Alfaro:
 
 This small town is [located](https://www.google.com/maps/place/26540+Alfaro,+La+Rioja,+Spain/@41.990806,-1.7258596,9.53z/data=!4m5!3m4!1s0xd5a5c29275a9899:0x4756601f55a167cd!8m2!3d42.1772977!4d-1.7502311) about 60 km west of Zaragoza. It is the current home of Hermano Jesus who was a Spanish Lit teacher for my brothers and I when we lived in Venezuela in 1972. Brian and I are hoping to perhaps visit him during our time in Spain. 
@@ -67,3 +71,23 @@ https://www.barcelona-metropolitan.com/features/ah-for-a-garden/
 https://ajuntament.barcelona.cat/ecologiaurbana/en/what-we-do-and-why/green-city-and-biodiversity/urban-agriculture-strategy
 
 https://urbag.eu/about/
+
+#### Museu de Ter (outside of Vic)
+
+This turned up as I was looking at something related and I don't want to lose these links.
+
+Museum Website
+https://www.museudelter.cat/
+
+English Guide
+https://www.museudelter.cat/tradueixlatevavisita/english.html
+
+Getting there:
+
+One can ride the rodalies train to Vic (zone 6) and then it appears that the 455 and maybe the 449 bus run regularly from Vic to Manlleu. Zone 6 T-casual is 55&euro; for 10 rides. We would use 4 of them (2 going and 2 returning) - about 5&euro; apiece each way. 
+
+**[Hotel Torres Manlleu](https://www.hoteltorresmanlleu.com/en):** is just a couple of blocks from the museum and has rooms for roughly 50&euro;. To me this makes sense as a way to visit for a little longer and not be rushing through the day.
+
+**[Sagales](https://www.sagales.com/en):** Sagales runs the bus lines in this region. I have downloaded a pdf of the 455 and 449 bus schedule but it's pretty complex. It appears that a couple of different buses run on roughly 30 min intervals and pass through Manlleu as part of their route.
+
+**Xic de l'Urgell** A falcon breeding facility is just outside Manlleu as well.

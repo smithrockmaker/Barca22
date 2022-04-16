@@ -20,7 +20,7 @@ Never mind all that. After chasing through the zone maps I can now sort out how 
 
 Once we're at Cornellá Center walk towards the rotonda (enter at 6:00 exit at 9:00) exit on C d'Esplugues. This arrives at a placa shortly. Continue forward on the Rambla de Josep Clavé which becomes a tree covered Rambla a block or so forward. Continue a short way forward to C/ de Marcelino Menéndez and take a right towards the river. This will T into C/ de Joaquim Rubio i Ors. Jog left across the street to the top of C/ de la Verge de Monserrat. Once on C/ VdM continue towards the river and follow it through a complex intersection with A/ Baix Llobregat. Just before this point we may notice Aikido Kokoro on the left side of the road. On the other side of A/ Baix Llobregat it continues, possibly as more of rambla than street, until it reaches the freeway where it appears to cross over. From this point it continues as a path that eventually crosses the river on a foot bridge. The footbridge is, maybe?, a very elegant and visible feature called the Nelson Mandela Bridge. After crossing the river follow downstream either on the trail that parallels Cami del Sorrel or on the road itself. Shortly you will reach the headquarters of Parc Agrari. A bit further down the road Cami de la Ribera takes off away from the river and is a roadway one can walk in a circle to view the farmlands. 
 
-Cornellá Center to footbridge on way to Parc Agrari
+Cornellá Center to footbridge on way to Parc Agrari  
 ![Parc Agrari Map](../imagesBarca22/ParcAgrariPath.png)
 
 **Metro Zones:**
