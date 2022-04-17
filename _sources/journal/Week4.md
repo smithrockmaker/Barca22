@@ -138,7 +138,27 @@ A lot of walking today and my knees know it. Comparable to yesterday's long walk
 
 #### 16/4/2022 Saturday
 
-Today started with letting Dawn see if she could find her own way to Kettlebell. She did great! I did walk along side but she did all the work. While she had her workout I went to the Marina metro stop to get my T-usual pass replaced. Nobody was at the booth so I bailed and walked down to the Barceloneta. Took about 15 min. Wasn't very crowded but there were plenty of people playing 2 person volleyball with just football (soccer) tools. I was very impressed at the level of skill and athleticism. Walked out the end of the pier. Water seemed very clear which is good for future reference. Walked back up through another rambla with some sculptures to get to Marina from a different direction. This time there was someone in the booth. They were totally chill about the whole thing as soon as I showed the passport that matched the number on the metro pass. He used his magic card to get the vending machine to give me a new card that is good for 3 more days (seems crazy) and I was on my way in 10 min. 
+Today started with letting Dawn see if she could find her own way to Kettlebell. She did great! I did walk along side but she did all the work. While she had her workout I went to the Marina metro stop to get my T-usual pass replaced. Nobody was at the booth so I bailed and walked down to the Barceloneta. In the morning light this building had a totally different feel than it did a week ago in the evening.
+
+Barceloneta Building 
+![Barceloneta Building](../imagesBarca22/PlayaBarca.jpg)
+
+Took about 15 min. Wasn't very crowded but there were plenty of people playing 2 person volleyball with just football (soccer) tools. I was very impressed at the level of skill and athleticism. 
+
+Football/Volleyball  
+![Football/Volleyball](../imagesBarca22/PlayaFootball.jpg)
+
+Walked out the end of the pier. Water seemed very clear which is good for future reference. As I walked back I noticed these standard solar hot water systems providing hot water for some of the businesses along the pier.
+
+Solar hot water systems on pier... 
+![Solar Hot Water](../imagesBarca22/PlayaSolarWater.jpg)
+
+Walked back up through another rambla with some sculptures to get to Marina from a different direction. 
+
+Rambla in Poblenou 
+![Rambla Poblenou](../imagesBarca22/PlayaRambla.jpg)
+
+This time, when I got back to the Marina metro station, there was someone in the booth. They were totally chill about the whole thing as soon as I showed the passport that matched the number on the metro pass. He used his magic card to get the vending machine to give me a new card that is good for 3 more days (seems crazy) and I was on my way in 10 min. 
 
 Picked up Dawn and she led us home -- Yay! After a bit of rest (my knees are still remembering yesterday's walk) we went shopping. Dawn made a lovely omelette for lunch with some of the baguette for bread. After that we chatted about our original plan to go to the Laberint de Horta but it just seemed so dang hot that we decided to just go over to the Origo Bakery and get some nice bread for the weekend and call it a day. 
 
@@ -152,7 +172,75 @@ When I got home I spent some time pursuing the Museo de Ter in Manlleu (15 min f
 
 Tegan called and we chatted for a while and checked in on Izzy. Things seem good in Oregon though its amazing how much snow is coming down this spring. 
 
-Off the the concert which I will report on tomorrow after we return.
+Off the the concert which I will report on tomorrow after we return. The concert was fabulous both for music and the dance. Great energy and great skill with good stagecraft. Would definitely recommend this to others when they are back every couple of weeks through the spring. This group seems to be a regular performer at the Palau. Two suggestions. Tickets are spendy but the extra 6&euro; for the seats on the main floor would be worth it. Also go for the seats on the left side of the theater (when facing the stage) because the drummer and dancers sit well to the right and we couldn't see them except when they come out to center stage. Theater was NOT full so plenty of seats.
+
+The links below are to a couple of videos (Jupyterbook does not embed videos at this time) that will give you a sense of the performance. There was a new performer replacing the guy in the middle -- equally as good.
+
+[Guitar Video](https://www.youtube.com/watch?v=xsTNn_oyToM)
+
+This recording of the shawl dance, Dawn's favorite, gives some sense of this pair of dancers. Really excellent and engaging. There are other bootleg theater recordings on the web but this one isn't bad.  
+[Flamenco Dancers](https://www.youtube.com/watch?v=dNmCu7SgMWI)
+
+#### 17/4/2022 Sunday (Easter Sunday)
+
+We got going a little early to try and get to the Laberint de Horta before it got hot. Turns out it also helps to be early especially since this was free admission day. Almost nobody on the metro as we arrived at the Mundet stop on L3 (Verde). No apparent signage for the garden but the Velodrome was well marked and the garden is right next to it. As we walked up the gate on the velodrome was open and having never seen one in person we stopped in. Very impressive to imagine how fast the bikers are going around the course.
+
+Velodrome near Laberint de Horta 
+![Velodrome](../imagesBarca22/LHVelodrome.jpg)
+
+We were intrigued by the jumble of large rocks and other objects on the near the entrance. Perhaps it's a play space in that mildly risky European sense? Definitely would not fly in the US.
+
+Play space at the Velodrome 
+![Play Space](../imagesBarca22/LHVeloPlay.jpg)
+
+When we got up to the lower gate to the garden it was shut since the garden doesn't open until 10:00. We cooled our heels for a while and then went back. The opening of the last gate to the garden was being held up while the workers rescued a toad from the front sidewalk and delivered him/her to the pond pictured below. Then they could get things opened up. Very amusing.
+
+Frog/Toad Pond at Horta  
+![Frog Pond](../imagesBarca22/LHFrogPond.jpg)
+
+Admission is limited at the garden though it's not clear exactly how many people are admitted simultaneously. We were early enough that we were part of the first dozen. The guard at the gate had a clicker and counted everyone going in. When we left they admitted two people from the line of 70 or so that was waiting at the front entrance. Along the left side of the entrance area was a fabulous ancient wisteria in full bloom. Throughout the garden all the wisteria were in bloom which smelled lovely. 
+
+Wisteria at entrance to Laberint de Horta  
+![Wisteria](../imagesBarca22/LHWisteria.jpg)
+
+We wandered through the park, slowly making our way uphill, for 90 min or so. Like all the parks we have seen here there is a different sense of management of the undergrowth and weeds. Clearly a lot of people visit and it is a challenge to keep everything growing and weeded in an area 0.5 mi x 0.5 mi (80 hectares). Outside of the central pathway between the original buildings in the park the trails on the edge are barely traveled so it is pretty easy to get away from folks if you want. Here are some images in no particular order.
+
+An orchid (possibly?) in the undergrowth  
+![Orchid](../imagesBarca22/LHOrchid.jpg)
+
+The garden was established in the early 1800's so some of the tree specimans are magnificent.  
+![Eucalyptus](../imagesBarca22/LHTree.jpg)
+
+Because we were early when we got to the actual laberint there was essentially nobody around. We kept moving because the morning light was lovely and we came back later to negotiate the laberint itself.  
+![Laberint](../imagesBarca22/LHLaberint.jpg)
+
+Tall guy in the morning light....  
+![Morning Light](../imagesBarca22/LHMorning.jpg)
+
+One of the ponds was formed to look a little like a river and the fountains that splashed in one portion made ripples that gave a sense that the water was moving when it wasn't.  
+![Pond/River](../imagesBarca22/LHRiverPond.jpg)
+
+There was a turtle in the pond in one corner so we took the obligatory turtle picture. There were also koi in this pond.  
+![Turtle](../imagesBarca22/LHTurtle.jpg)
+
+Along the way we were struck at how separate from the city of Barcelona we felt. I can see why people would visit regularly for a sense of peace and separation. Just west of the garden there are a number of trails that head up onto Tibidabo if one wants to actually take a serious walk though it is a bit sunny. This picture is looking toward downtown from well up in the park.  
+![Looking towards Barcelona](../imagesBarca22/LHIsolation.jpg)
+
+We wondered if they rented the garden out for events since it seemed like such an obvious fundraiser. Shortly thereafter we were at the upper pool, pictured below, and watched a photographer taking engagement pictures with a couple. Here is that upper pool. 
+![Upper Pool](../imagesBarca22/LHUpperPond.jpg)
+
+As we walked deep into the upper part of the park we met the fence made of what seems like recycled building materials. It is a very pretty way to use a whole bunch of left over or mismanufactured rebar. 
+![Rebar Fence](../imagesBarca22/LHFence.jpg)
+
+On the way back down from the top of the garden we stopped at the actual laberint and Bruce gave it a try. Even with lots of trees being replaced it's pretty good fun trying to find your way around. I thought getting out after reaching the statue of Eros in the center would be trivial but I had to take a couple of tries to get out. The image is upon my successful exit:)  
+![Laberint Complete!](../imagesBarca22/LHExitLaberint.jpg)
+
+We left and found our way home. Tried stopping and changing metro lines at Passeig de Gracia instead of Plaça Catalunya. Not a good plan -- it's an even longer walk to get from L3 to L1 than it is at Catalunya. Good to know.
+
+Came home and had a great lunch and a little siesta. 
+
+
+
 
 
 #### End Week 4
