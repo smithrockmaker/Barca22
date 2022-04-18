@@ -1,4 +1,4 @@
-### Week 4: 11/4/2022 - 18/4/2022
+### Week 4: 11/4/2022 - 17/4/2022
 
 This week is Holy Week (Semana Santa) in the Catholic world. We're not quite sure how it's going to play in terms of more busy or less busy nevermind metro schedules. Iria thinks it might be quieter in most parts of the city as many people leave town to spend time with family elsewhere. We shall see....
 
@@ -75,7 +75,7 @@ Cutoffs from granite counters.
 
 We found the C/ de Ribera and started walking through the fields. This is when it became clear that every artichoke plant produces a large number of 'fruits'. A various points it felt like it was artichokes as far as the eye could see.
 
-Artichokes (carxofes) as far as the eye can see....
+Artichokes (carxofes) as far as the eye can see.... 
 ![Carxofes](../imagesBarca22/PACarxofes.jpg)
 
 Along the edge of the road there were concrete irrigation ditches with places to block the flow and flood irrigate the crops. Flood irrigation is clearly the plan here. Perhaps using water from the Llobregat. At one point we found this amazing tree (poplar/cottonwood) that had clearly been at this intersection of the ditch for hundreds of years. Dawn grabbed a picture.
@@ -95,7 +95,7 @@ in discussion
 
 I attempted to ask him questions about why the artichokes were overripe and he was clearly disgusted that the owners had abondoned their crops and harvested nothing. There was a definite sense that many of the owners did not work at their land hard enough to warrant his respect. We walked by a well maintained market garden at one point and he noted that this was a plot that the original owner didn't care for so the new owner made an offer and bought the property. Got some respect that did. 
 
-portrait
+portrait  
 ![Portrait](../imagesBarca22/UnMayorPortrait.jpg)
 
 He had walked down from San Boi center which was 2 km or so away (maybe more since we don't know exactly where he started) to visit his friend and was on his way home with his trusty cane walking stick. A couple of times he pointed out homes of people who were married to the folks who passed us on tractors. He also noted that he had two kids and they were still living at home. I wonder if they are grandkids given that he is 79 and they are in their 20's living with him with their girlfriends. Anyway, we had a great chat and when we almost took a turn down a deadend road he got us on the right track. We bumped elbows a la COVID and exchanged great smiles as we each went on about our lives.
@@ -237,11 +237,11 @@ On the way back down from the top of the garden we stopped at the actual laberin
 
 We left and found our way home. Tried stopping and changing metro lines at Passeig de Gracia instead of Plaça Catalunya. Not a good plan -- it's an even longer walk to get from L3 to L1 than it is at Catalunya. Good to know.
 
-Came home and had a great lunch and a little siesta. 
+Came home and had a great lunch and a little siesta.
 
+Went out with Dawn to Life Drawing. We're almost ready to let Dawn go on her own! Model was running late but not an issue. I went a little ways down Laietana to see if I could sort out where the sandwich shop that Tegan mentioned was. Oliver had pointed it out as we went on our Gothic walk the first day. Its in the corner of the Plaça de Sant Jaume and is called Conesa Entrepans. If I head down Laietana and turn into the Gothic one the near side of the small square at the next metro stop that street takes me into the Plaça right next to the sandwich shop. Good deal. I came back towards Laietana and turned up a side street towards the cathedral and found myself among some of the old spaces that Oliver had taken us to that I had forgotten about. At that point I headed back to meet Elizabeth, Emma, Simon, and Brian. We all managed to find each other at the sculpture out front of the Palau de la Musica. From there we went over to show Elizabeth where Raima is. This is the wicked cool paper and stationary store just across Laietana from the Palau and down C/ Comtal a block or so. It was closed so we stopped and had a beer and a donut for Simon (he had a bubble tea from a shop across from Raima). After a chat (many interesting topics including Emma's MO for choosing places to stay on this adventure shes on) we walked up towards Catalunya where E headed home with Simon and the rest of us went down to the Cathedral and then walked over to find the 'umbrella' building on La Rambla. We then walked up to Catalunya ourselves. Emma and Brian headed home and I went over to pick up Dawn from drawing.
 
-
-
+Home and bed to complete the day and the week.
 
 #### End Week 4
 
