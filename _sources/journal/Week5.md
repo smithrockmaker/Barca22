@@ -50,7 +50,42 @@ Gotta remember not to forget to renew our phones in the next couple of days and 
 
 #### 19/4/2022 Tuesday
 
-Well well....
+Tuesday started with Music class followed by Dawn's Kettlebell class. Today is apparently the last day for the mask mandate here in Catalonia except for public transit and hospitals and one other place that no one can remember. It will be interesting. One student had COIVD this weekend but was already separate from the rest so no risks that we can tell. 
+
+After Kettlebell class we went home for a snack and then I went back to pick up Dawns shoes at the gym on my way to pick up our new metro cards. Us 'not so young ones' can only get one month passes while the traditional age students get a 90 day pass, Actually a blessing to get a new pass every 30 days since they tend to quit working when they get bent or wet and stop working at relatively inconvenient moments when there is nobody at the station office to replace it. Replacement is actually pretty easy  - you bring the pass that's not working and your passport that matches the number on the T-usual pass and they generate a new card with the same passport number and expiration date. Takes only a few minutes if the station isn't crowded.
+
+When I got back we went over to Lanto to have lunch with Brian and Emma. The food was fabulous again as we expected. Brian and Emma seemed to very much enjoy it. Update on restaurant details. The owner is Ricardo along with his wife Arica. Simone is the Italian at the grill and prep table. Lanto is Ricardo and Arica's son. Ricardo apparently spent 10 years cooking in Londay as a chef and the some years in Denmark before coming to Barcelona. We are very grateful that they are so convenient.
+
+We had lovely conversations about Parc Guell that we both visited at different times yesterday. It was also fun to compare perspectives and insights that we feel like we've noticed being in Spain for a time. Emma had been in Cadiz for a month while we were in Barcelona. Brian is a quick study so his 3 days count as a month for me.
+
+After Brian and Emma headed off to their evening plans Dawn and I went down to the local Yoigo store to try to get our phones/SIMs renewed. The Yoigo app didn't really give me an option to do this so visiting a local store seemed like a good idea. This was one of those conversations that I felt pretty overwhelmed by and feel like I missed a bunch of content. Dawn is right that it might have been a good idea to try the conversation in English as the salesperson offered but I am admittedly a bit stubborn about trying to manage as best I can in the local language. We had used less than 2 GB of our 20 GB plan which seems crazy. Apparently he dropped our plan to 2 GB which should work fine but I was happy to keep paying for 20 GB (15&euro;/month). I think he suggested that our phones will automatically charge our credit card each month unless we change something. In addition we put 20&euro; on each phone which I hope the phone will access to pay our fee for the plan if the credit card isnt accessible. We'll know tomorrow what's up since my plan is supposed to run out sometime tomorrow. We'll see.
+
+Came home and chilled and went to bed.
+
+#### 20/4/2022 Wednesday
+
+Astronomy class in the morning and Spanish class in the afternoon. In between we stopped at We Love Italy. This is a small restaurant near the Spanish classroom that the other students found and recommended last week. We found it tasty and reasonable cost as well as friendly on every level. We generally agreed with the student assessment.
+
+Today they combined both our classes into a single classroom and did a number of activities related to Sant Jordi's Day which is Saturday. Some of the take aways are:
+
+* Single rose not a bunch of rosesl, the bunch is too ostentatious, makes you look like you want something.
+* The rose comes with a stalk of wheat to conote fertility -- wasn't aware of this at all. 
+* April 23 also aligns with International Book Day which is connected to Shakespeare' and Cervantes' deaths.
+* Sant Jordi is the patron saint of Catalonia but it is not a day off from work even if it falls during the week.
+
+Lots of the symbolism at Casa Batllo is tied to the legend of St George and the dragon. That was interesting.
+
+The class created alternative stories of Sant Jordi and the dragon -- Roy was especially impressive along with Dawn in enacting alternative vision of the story. Well done all!
+
+After Spanish we walked back up to the Origo bakery to get some more bread and then down to see if the L5 line really was back in operation. Turns out it was - whew. Had a good dinner and then let Dawn lead us to Life Drawing in el Born. Almost ready for a solo flight there, soon.
+
+A couple of days ago when doing laundry we dropped one of Dawn's socks. It was one of a pair that Denali got for Dawn we were a bit sad. After waiting to see if the folks on who's terrace it landed would put in in the stairwell or on the mailboxes (we could see that it got picked up) Elizabeth suggested that we lower a string with a note. Dawn did just that lowering a string 4 stories with the other sock and a note asking if they could attach the missing sock. When I pulled it up tonight to keep it from being rained on there were both socks. Mission Accomplished!! Very cool and amusing though they didn't add anything to the note. Perhaps they will acknowledge us at some point in the future.
+
+Hard to know what we'll do tomorrow since it's supposed to be raining pretty hard.
+
+#### 21/4/2022 Thursday
+
+Slept in late since there was nothing pressing and heavy rain was predicted. The rain has come to pass to we are heading off to visit some of the contemporary art museums today.
 
 #### End Week 5
 
