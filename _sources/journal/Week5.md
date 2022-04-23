@@ -195,7 +195,9 @@ Croquet set..
 Mystery boxes..     
 ![Small Boxes](../imagesBarca22/TerBoxes.jpg)
 
-After thanking David (Jordi had already left but 'Thank you Jordi!') and trying to buy a mask to support the museum we headed out to explore more of the city/town on foot. David wouldn't let me purchase the mask so I'll have to figure out how to support their efforts some other way. 
+After thanking David (Jordi had already left but 'Thank you Jordi!') and trying to buy a mask to support the museum we headed out to explore more of the city/town on foot. David wouldn't let me purchase the mask so I'll have to figure out how to support their efforts some other way.
+
+**Planning Note:** If you want to be sure that someone will be available to run the turbine while you are there it would be prudent to email the museum ahead of time (Jordi's suggestion). They love to provide this experience but it seems likely that sometimes they are busy with other tasks. I'm not sure if anyone besides Jordi is trained to do the turbine demos.
 
 When we got outside Dawn headed across the footbridge to take some pictures of the livestock on the other side of the river. The footbridge is really lovely but would make an american liability lawyer salivate. One of those clear differences between Europe and the US. If you're too silly to make good decisions that's on you not the builder/owner. Accidents happen but stupidity is not an accident. 
 
