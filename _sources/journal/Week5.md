@@ -116,7 +116,6 @@ Canola (rapeseed) fields near Vic
 
 At this point in the day we attributed the general quietness to being midmorning but it was still slightly surprising to be walking down what seemed like significant street and yet we saw almost no cars or people. We did stop for coffe and coissants in the first couple of blocks but it was the only open business we saw for quite some time. We were really expecting it to be more like Barcelona with a small coffee shop on every other block. I was also intrigued that this panderia didn't have a full scale espresso/coffee machine but just a small automated one like we see in doctor's offices. Even the smallest place in Barca has a serious coffee machine. Hmmm..... As we walked into town after coffee we noticed this remarkable house on one side of the road (the address is around Avinguda de la Diputació 86) that seemed to reflect the mosaic traditions of Guadi. As we walked around the house it was more and more amazing. Somebody was passionate about assembling river rock (mostly) into familiar forms from Catalunya including the Sagrada Familia, various Catedrals, other forms and stories. Some images below but you need to zoom in and look at the details for fully appreciate the effort. Later when we talked to David and Jordi at the museum they said that the owner was just someone who has had a passion for this all his life. Sounds exactly like the guy who build [Petersen's Rock Garden](https://www.atlasobscura.com/places/peterson-rock-garden) between Bend and Redmond.
 
-
 Passion for Rocks (1)  
 ![Passion for Rocks (1)](../imagesBarca22/TerRock1.jpg)
 
@@ -157,26 +156,29 @@ Like David, Jordi is also passionately engaged in the project of sharing the his
 
 The basic thesis is that as people around the world figured out how to use water to turn a shaft, whether for grading grains or for driving belts, and industry built up around it. Overshot or undershot wheels like we saw at the flour mill in Vit Fleur in Normandy were replaced by Fontaine turbines. These cross flow turbines have a vertical axis. I would love to understand better how they are constructed since it was impressive to see it in action. Jordi said (I think) that the blades of the turbine in Manlleu are wood and can be replaced individually. Major rebuilds are apparently only needed every 10 years or so which is quite impressive. A quick google search did not bring up a lot of information so I will need to table that for a future exploration but I am very curious. 
 
-It is quite dramatic to watch the water being admitted to the drive chamber of the turbine and see it get started. The volume of water is quite impressive. I have a video of the process of starting the system up but it needs some editing and uploading to youtube. For now here is a placeholder.
+It is quite dramatic to watch the water being admitted to the drive chamber of the turbine and see it get started. The volume of water is quite impressive. The entire drive chamber was empty of water when we started and modern control equipment was used to open the exterior gate to the canal. In a Fontaine turbine the water falls vertically through the turbine which has (I think) a stationary set of blades that force the water one direction and a second set of blades that reverse the path of the water generating maximum drive force. It's a mass flow problem from ENGR 212! 
 
-**Video to come:Starting the Turbine** 
+[Video clip of start up of Fontaine turbine at Museo del Ter](https://youtu.be/itIatGpLR-8)
 
 At this point in the process the drive belt attached directly to the turbine shaft (vertical) is coupled to another drive wheel via friction. In the image below (taken from the guide) you can see this coupling in the top left. There is a spring which pulls the two drive wheels together creating sufficient friction to hold them together. This is actually a slip coupling or clutch which is very wise when you are connecting two drive systems. It allows the two drive wheels to slip relative to each other which both brings the new belt up to speed over a little time and provides a safety margin if something were to jam the drive shaft in the factory. Very interesting.
 
 Horizontal drive wheel coupling      
 ![Jordi](../imagesBarca22/TerCoupler.jpg)
 
-Jordi then showed us how the drive shaft connects to and runs the 4 machines they have set up in the museum for this purpose. All the chosen machines are fairly low load machines which is probably a great choice for safety and demonstration purposes. Again, I have the videos but need to do some processing before linking them here. Below are placeholders.
+Jordi then showed us how the drive shaft connects to and runs the 4 machines they have set up in the museum for this purpose. All the chosen machines are fairly low load machines which is probably a great choice for safety and demonstration purposes. The skein winder takes the thread from the thread spinning machines and wraps it into the large skeins that weavers use to thread looms or dyers use when coloring the thread. The main drive shaft connected to the turbine is always running so to 'turn the machine on' you slide the belt at the left from the idler wheel on the left (exposed in the video) to the drive wheel that the belt is riding on in the video. There is a wooden tool that you can just see near the top left of the machine that is adjusted to guide the belt over the wheel that you want.
 
-**Video to come:automatic skein winder**
+[Video clip of start up of skein winder at Museo del Ter](https://youtu.be/QMyEL6HODSw)
 
-**Video to come:shuttle winder**
+The looms that were used to make the actual fabric accepted the raw threads in different forms. One form that was common was a fly shuttle that had a bobbin in it (much like a modern sewing machine bobbin). This machine winds the bobbins that are then inserted into the fly shuttle. Notice that the bobbins are not winding until they are lift and placed in the cradle closer to the axis of the machine where there is a drive wheel that turns the bobbin. This makes it easy for an operator to start and stop the bobbin winding process.
+
+[Video clip of start up of bobbin winder at Museo del Ter](https://youtu.be/B6Q2Uy-M7Bk)
 
 Perhaps most fascinating is the machine for combining multiple threads into a heavier thread. Jordi was absolutely on target by describing it as a dance and they have clearly fielded many questions about the actual pattern. To see the pattern you have to slow the dance down which I will attempt to do in the second video. Jordi demo'd it by hand cranking the machine which brings the speed down to a point your eyes can follow an individual spindle. We'll see if our memory is correct about what the spindles are doing. I suspect Dawn's visualization that it is like the maypole dance where each person (spindle) travels completely around the pole is correct.
 
-**Video to come:heavy yarn winder**
+[Heavy thread braider](https://youtu.be/fwNuBv5Fjvc)
 
-**Video to come:yarn winder slow**
+Pick a spindle that is bright so it is easier to track and you will see the pattern. Dawn was right!
+[Heavy thread braider slo mo](https://youtu.be/xLtLZ9Q3cUM)
 
 We chatted with Jordi for a little while longer before he had to go. He noted that many of the building owners have realized that the turbines along the edge of the Ter river can now be connected to generators to produce steady modest amounts of power for the utilities. The factory in which the museum lives has a second turbine which is connected to a generator in this way and generates electrical power which probably mitigates costs for the musuem.He pointed out that this has raised some important social discussions about whose water is it in the river and why are the landowners/factory owners the only ones who should benefit. As more and more water is removed from the river for agricultural and human uses and the climate changes how do we as a society find a balance between those competing interests. 
 
