@@ -240,6 +240,10 @@ Came home and started working on this journal since yesterday is going to be a l
 
 We had lunch as were considering heading out to see what was happening on La Rambla when the wind came up and the heavens opened up with a pouring rain. Huge drops and lots of water. It seems like after each storm it would clear and just as we were thinking it was reasonable to step out the next stormlet would come in. Lots of thunder and even some hail for crying out loud. Perhaps we won't get out again today though it is supposed to settle down in the early evening. Must be a total pain for all the booksellers and rose sellers whose booths are being whipped by rain and wind. We saw once rose seller have a large vase blown off their table to shatter on the concrete and a sun shade umbrella at a bar got blown over on the next table and it was hard to get upright with the strength of the wind. 
 
+#### 24/4/2022 Sunday
+
+Today we took a Viator tour of Girona, Pals, and Calella de Palafrugell
+
 
 #### End Week 5
 
