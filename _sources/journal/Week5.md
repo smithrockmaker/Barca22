@@ -244,6 +244,84 @@ We had lunch as were considering heading out to see what was happening on La Ram
 
 Today we took a Viator tour of Girona, Pals, and Calella de Palafrugell
 
+Dawn had a thought to set up a guided tour to get to the Costa Brava (north of Barcelona) to see what it looks like and at the same time reduce my sense of organizational stress. She booked us a day long small group guided tour to Girona, Pals, and Calella de Palafrugell. This particular tour runs out of the office we had seen next to the Palau de la Musica Catalana so we knew how to get there. We left in a small van at 8:30 for the roughly 90 min drive to Girona. Along the way Camelo (Camilo?) pointed out the various hilltop castles and their relationship to Iberian cultures from the celtic through the roman to the medieval. All along the Mediterranean coast of Spain has been an important road for commerce since the Greeks. As a result there have been many military exercises that have passed through the region over the centuries leading to the many fortifications on hilltops. Some are hotels, others are now museums, and still others are functionally abandoned.
+
+Girona is a compact small city of 1000,000 which makes it feel less overwhelming than Barcelona. Started at the river just below the old town. Like so many places in Spain the public spaces have some really lovely sculptures and fountains. This was one on our way to enter the old city.
+
+Girona: Fountain      
+![Girona: Fountain](../imagesBarca22/GirFont.jpg)
+
+A modern steel bridge took us across to one of the cathedrals which was built outside the old Roman and Carolingian wall. This particular church had never been completely finished so it took some visualizatio to see that what looked like an interupted wall on one side of the structure was actually an incomplete bell tower. Everything is so dang big and took so long to build. Hard to quite grasp the different flow of time and effort 1000 years ago. There is a complicated legend about why there are so many flies in the area (probably just the river) but the fly is a symbol of Girona and this corner pays homage to the flies.
+
+Girona: Flies      
+![Girona: Flies](../imagesBarca22/GirFlies.jpg)
+
+Perhaps it's because it was Sunday but Girona was very lovely and quiet when we were there. It was mid morning but there were only a few people out moving around which was lovely. Parts of the old town in Girona were used as sets for season 6 (?) of Game of Thrones and it is easy to see why. Lovely ancient buildings in spaces where you could avoid seeing any sign of the modern world. As we slowly walked up to the main cathedral this was a typical view. We only had one Game of Thrones fan in the group but our guide Camelo was ready with images to point out the relevant scenes and settings from GoT. The old city of Girona is on a hill next to the river which leads to a lot of topography. The old Roman forum which would usually be a large flat plaza had many steps and platforms to make it work in this context. The original Roman walls have been added on to and covered up but still define the basic form of the city. As successive ages passed the medieval city and cathedral were built on top of the Roman forum which means there are a lot of steps going up to the cathedral. Lots of images on line if you go look but it is amazing to imagine how many folks have walked this long set of steps. As we exited the cathedral Dawn notived a partially obscured vertical format sundial on the side of the cathedral. I should have taken a picture since it was interesting due to having been partially occluded by later construction which made it ineffective for actually tracking time. The gnomen was still there and was casting a line but the lines which label the time were covered over by the new construction. Very cool none the less, a timepiece in the public square before the era of mechanical clocks.
+
+After the obligatory visit to the old churches and cathdrals in town we independently took a walk along the Carolingian wall (built in the time of Charlemagne) which gave beautiful views both of the modern city and the wonderful private spaces within the old city. At one point we could look along this ancient wall and marvel at it's height and structure. Even though it has definitely been restored at different times over the centuries it is still very impressive to imagine building such a wall 1000 years ago. Makes my back ache for the many workers. Also reminds us what can be accomplished if you just keep at a task for centuries. Who does that anymore?
+
+Girona: Carolingian Wall      
+![Girona: Carolingian Wall](../imagesBarca22/GirWall.jpg)
+
+As we came down from the wall we walked down into the old Jewish quarter of town. Along the way we passed many lovely doors. This one of steel caught our eye but there were many others in different styles and materials. Some of the ancient buildings formed a modern school which is wild to wrap my head around given how new and unrooted almost all American University buildings are.
+
+Girona: Doorway        
+![Girona: Doorway](../imagesBarca22/GirDoor.jpg)
+
+Eventually we found ourselves in front of the [Jewish Museum](https://www.girona.cat/call/eng/index.php) and decided to take a few minutes to visit. It is a lovely remembrance of the complex ways in which Jews were and were not integrated into life on the Iberian peninsula. At times the community was an accepted part of the whole (more than tolerated but perhaps less than fully accepted) and at other times driven into ghettos and separated from Christian society. Ultimately all Jews were driven out of Spain or forced to convert. The excavation of the mikvah from these times was fascinating to see. Also pretty cool to be reminded that Hebrew as a script is still readable by modern Jews even hundreds of years later. A good visit well worth the token entry fee. Some of the mezzuzot and other ritual objects from the time were lovely. The image below is at the entry to the museum and we haven't had time to sort out it's meaning yet.
+
+Girona: Threshold to Jewish Museum     
+![Girona: Threshold to Jewish Museum](../imagesBarca22/GirHebrew.jpg)
+
+As we exited the Jewish museum we could hear drums and music in the distance. In spite of our awkward experience in Zaragoza we drifted towards the sounds and found another parade (we no idea what the motivation was though yesterday was Sant Jordi's Day). This parade was really lovely though why horses were the theme is anyones guess. The horses were constructed in the form similar to Chinese dragon dancers with two or more people inside the horse. One group was a women's drum corp, another was a band formed of traditional double reed instruments, and the third was actually a low brass New Orleans style band. I noticed partly because they were playing a tune that is in the B-Side Brass Band book. I need to figure out how to share it with the B-Siders. This particular horse was quite tall and also sprayed water from it's nostrils on the crowd. Becuase it was so tall at one point the dancers were able to reach up to a first floor balcony to interact with a watcher up there. Very impressive. The other 'horses' in the parade were more normal sized. After some digging around it appears that these horses (mules actually) are part of a Catalonian bestiary that are constructed in much the same way as the Gegantes for use in parades. The mulassa in particular is a favorite of the common people for it's temperament and it's humor. That seems to be very much what we saw. Here is a [description in English](https://festival.si.edu/blog/the-making-of-the-smithsonian-mulassa) (from the Smithsonian of all places) of this Catalonian tradition.
+
+Girona: Parade Band    
+![Girona: Parade Band](../imagesBarca22/GirBand.jpg)
+
+[Video of Parade](https://www.youtube.com/watch?v=dmYRr3fRYUo)
+
+A quick search on the web found [other videos](https://www.youtube.com/watch?v=PPSfgFgQYIk) of the same group and their horse. Nothing like a New Orleans band in the setting for Game of Thrones.
+
+After squeezing our way past the parade we wandered over this bridge which, no surprise, was an early design by Eiffle of Eiffel Tower fame. This bridge preceeds the Eiffel Tower.
+
+Girona: Eiffel's Bridge  
+![Girona: Parade Band](../imagesBarca22/GirEiffel.jpg)
+
+At this point we returned to the van and continued on to Pals which is another small hilltop town. More of a similar history but in this case the royal residence was primarily occupied by the wives of various kings and nobles and so Pals has a history of being 'ruled' by women. As it happens a group of women were expressing that history while we were there as well as pushing for Catalonian independence. A number of our group wanted to get pictures with these women. This is an image of them getting images of themselves -- very meta don't you think?
+
+Pals: Ode to the Historic Women of Pals    
+![Pals: Historic Women](../imagesBarca22/GirLadies.jpg)
+
+The oldest part of the complex is a tower rising from the bedrock at the top of the hill. A couple of visitors posed looking out across this beautiful region of Catalonia. 
+
+Pals: Visitors    
+![Pals: Visitors](../imagesBarca22/GirVisitors.jpg)
+
+As we left I managed to get a poor shot of our guide, Camelo, who was great with the young boy who was with us that day and was anxious to get to the beach. Camelo is from Quito Ecuador (born Guayaquil) who came to school in Catalonia and married a local woman who is also a part time tour guide. Camelo makes a living mostly from his freelance work as a graphic designer supplemented with guiding. Wonderful guy and careful driver.
+
+Pals: Camelo, our guide.      
+![Pals: Camelo](../imagesBarca22/GirCamelo.jpg)
+
+As we walked through town we noticed this lovely use of rebar and welding to create a 'branch' like sculpture which we really liked.
+
+Pals: Branch from rebar    
+![Pals: Branch from rebar](../imagesBarca22/GirRebar.jpg)
+
+From Pals we headed over to the nearby beach town of Calella de Palafrugell. This is the sort of place you'd like to be able to get to easily but that isn't the case unless you have a car. The water is beautiful and clear, there are gorgeous buildings perched along the rocks and on the headlands, and all in all it looks like it would be equally at home in Greece. We had lunch in a waterfront restaurant which was decent though not fabulous food. Then we walked along the waterfront and took pictures and enjoyed the wonderful fresh air. I suppose if it were easy to access it wouldn't be as nice.
+
+Calella de Palafrugell: Looks like Greece    
+![Calella de Palafrugell: Looks like Greece ](../imagesBarca22/GirGreece.jpg)
+
+Dawn went down and explored along the rocks a little.
+
+Calella de Palafrugell: Dawn along the rocks.    
+![Calella de Palafrugell: Dawn](../imagesBarca22/GirArtist.jpg)
+
+We drove back to Barcelona sort of along the coast and the character of the coast quickly changes as one gets closer to Barcelona. More beach, less rocky goodness, and much denser human population. Not as interesting to us for sure. 
+
+We arrived back in Barcelona around 7:00. Camelo was concerned about just dropping us from the van on the street because of rising rates of pickpocketing. As a result we exited from the parking garage under Mercat Santa Caterina. We said good by to Lawrence and Jennifer (Americans from Germany) who had been lovely companions. We also guided another companion from the trip back through el Born to the Palau to get tickets for the Flamenco show that she was interested in. Along the way a man who was walking in front of us snatched some sunglasses from the Brit in front of us and took off down the alley. The Brit was very quick and gave chase but had no chance of catching him. Nevertheless the thief dropped the glasses which was surprising. I realized that I had felt that something was odd about how he was walking near us but hadn't put together the risk. Now I know to be even more careful in certain settings.
+
+Got home and wrapped ourselves in the comfort of being home.
 
 #### End Week 5
 

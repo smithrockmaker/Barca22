@@ -12,13 +12,18 @@ Music class plus Altafulla-Tamarit
 
 After music class where we went through the [Song Exploder podcast episode](https://songexploder.net/dune) with Hans Zimmer and his compositional process for the movie Dune we headed off to Tarragona. This was our first experience trying to find our way through the massive Barcelona-Sants station. It's enormous. Finally found the right ticket booth since there are multiple ways to get to Tarragona. There is an Ave (high speed train), a regular Renfe train, and then there are the Rodalies (suburban trains). All of them end up at Tarragona but have different stopping points along the way as well as different schedules. The ticket isn't for a particular train but just for a particular destination. Because Dawn had mentioned that she had found a reference to a pretty and less visited beach at Tamarit I wanted to be able to get off earlier than Tarragona if needed. Turns out that doing some searching as we traveled that the Altafulla-Tamarit station seemed to be close to the beach that interested her. We got off and wandered downhill (the official towards the water direction) through a largely vacant beach town until we found ourselves on a nearly deserted beach. We could see the castell (11th century) that had intrigued Dawn about half a km down the beach so we headed off to see. It turns out to be quite beautiful and accessible for what we needed. 
 
-Images
+Beach at Altafulla-Tamarit    
+![Beach at Altafulla-Tamarit](../imagesBarca22/TamPlaya.jpg)
 
 Dawn asked a couple on the beach about trails across the headlands and they noted you could go around the other side of the castell to a small cove but the longer trail was closed. After sitting in the cool breeze looking out over the ocean for a while we walked around to the cove and out onto a rock jutting out into the ocean. Very beautiful and secluded. Had the undercut cliffs that Tegan is planning to climb on in Minorca later in the spring. Hope the rock in Minorca is a bit less sharp and chossy. 
  
-Images
+Rocks at Altafulla-Tamarit    
+![Rocks at Altafulla-Tamarit](../imagesBarca22/TamRocks.jpg)
 
 There has a small boy running through the water and sand while his mom watched and a older gentleman contemplating swimming (but didn't). As we were sitting just warming in the sun a couple of younger women that reminded Dawn of the models at life drawing came down with their dog to sit in the sun and play catch with the dog in the waves. Joyful looking dog. Took me a while (Dawn had to mention it) to notice that they had european body comfort and were topless playing with the dog. One feature of the beaches here is that there are rafts of small to medium sized flat skipping stones. After some time snoozing in the sun I attempted one of my homages to Andrew Goldsworthy. After a few tries I got a small arch to bridge between two points on the edge of the beach. I like this type but I doubt this one will last. It's a little too unstable. The one like this on a rock below the Writing Dept on the COCC campus is still there after several years which gives me secret joy.
+
+Arch at Altafulla-Tamarit    
+![Arch at Altafulla-Tamarit](../imagesBarca22/TamArch.jpg)
 
 Somewhere in the scramble down to the cove Dawn rolled her ankle in some way and we were a little concerned about how serious it might or might not be. Decided not to push it too much and walk gently back to the train station and head for home after a beverage.
 
@@ -27,6 +32,9 @@ Managed to find a cafe that was open to have a coffee and a beer before heading 
 #### 27/4/2022 Wednesday 
 
 Today started with Astronomy which was interupted by our opportunity to tour the solar system on the roof of the building that I had noticed 4 months ago in google satellite view. I couldn't tell whether it was a hot water system (required by Barcelona ordinance) or a PV system. As it turns out its about a 5 or 10kW PV system that is owned by the landlord. They installed it both to engage with green initiatives (I don't know what the programs are that might have supported this installation) and to offset some of their energy costs. I think I made some mental math errors as we were talking about them that I will have to correct later. Side note: This is one of the ways that I can feel my mind slipping these days. I make more and more unforced math errors in my head. Very frustrating! Anyway... We had a good discussion and perhaps added some thoughts to those at SAE who are working to construct a sustainability thread for some of their other international business programs. 
+
+PV Solar Panels on roof at SAE    
+![Solar Panels at SAE](../imagesBarca22/SAESolar.jpg)
 
 **Note to Self:** I need to connect SAE with the Gaviotas thread from Columbia which might be useful to them.
 
@@ -37,6 +45,8 @@ After the 'tour' we closed class a little early so students had plenty of time t
 Dawn was still waiting for the oral portion of her exam so I went off to Origo Bakery to refresh our bread supply and then came back for her. On the way home, walking, we talked a little about language classes and how fluency feels like it can only come from learning like a child through imitation in context which is hard to replicate in a classroom. Oh well.... we do all seem to be getting better which is good. 
 
 Dawn has an art show to judge before Friday so we stayed home this evening and she worked on that while I started trying to get caught up on this journal.
+
+#### 28/4/2022 Thursday
 
 #### End Week 5
 
