@@ -90,4 +90,52 @@ One can ride the rodalies train to Vic (zone 6) and then it appears that the 455
 
 **[Sagales](https://www.sagales.com/en):** Sagales runs the bus lines in this region. I have downloaded a pdf of the 455 and 449 bus schedule but it's pretty complex. It appears that a couple of different buses run on roughly 30 min intervals and pass through Manlleu as part of their route.
 
-**Xic de l'Urgell** A falcon breeding facility is just outside Manlleu as well.
+**Xic de l'Urgell** A falcon breeding facility is just outside Manlleu as well. We didn't find this since we were a bit worn from walking and were ready to head home when we might have had time to go look for this.
+
+#### [Model. Barcelona Architecture Festival](https://www.model.barcelona/en)
+
+There are 5 themes to this extensive festival and it appears that there will be multiple events happening every day. It will be hard to pick and choose. The landing page currently appears to offer a day by day listing of all activities that will be taking place including all the 5 themes. 
+
+>
+Between Generations
+>
+Between Cultures
+>
+Between Species
+>
+Between Materials
+>
+Between Classes
+>
+
+All of these have some interest for me but the materials discussions are a natural fit for me. I think the way for me to explore this is to list the dates that I might actually have some time available (not M/W) and pick 2 or 3 possible events to keep track of. That will give me more than enough to think about.
+
+##### 5/5 Thursday
+
+The [Augeries](https://www.model.barcelona/en/auguries) are virtual indicator species designed to let us know when things are out of balance. Plaça Urquinoana. Inferstudio Bethany Edgoose i Nathan Su - I'm not at all sure how this will work but it appears that the installation will be for the duration of the festival.
+
+##### 6/5 Friday
+
+##### 7/5 Saturday
+
+[FabLab Barcelona and IAAC open day](https://www.model.barcelona/en/iaac-open-day)The Institute for Advanced Architecture of Catalonia (IAAC) and the Fab Lab Barcelona, will open their doors for the 2022 edition of the Poblenou Urban District Open Day. IAAC is a centre for research, education, production and outreach, with the mission of envisioning the future habitat of our society and building it in the present. IAAC follows the digital revolution at all scales to expand the boundaries of architecture and design and meet the challenges faced by humanity. The Institute develops various research programmes and projects bringing together experts in different disciplines such as architecture, engineering, biology, sociology, anthropology and other fields of investigation. IAAC, Carrer de Pujades, 102, 08005 Barcelona - just a few blocks towards the beach from Glories
+
+[Co-mida](https://www.model.barcelona/en/co-mida-connecting-plants-and-communities)How to connect plants and communities through design and digital technologies? CO-mida is a 3D printed wall for food and energy production, co-designed by IAAC with the local community and installed in ConnectHort, where the event will take place. The event will consist of the wall presentation and a roundtable with experts talking about co-design, new technologies, digital fabrication and urban ecology. The roundtable will be moderated by Chiara Farinea (IAAC) and Elisabetta Carnevale (IAAC). This is at ConnectHort which is just down Independencia near the beach. Preregistration is needed through [this webpage](https://iaac.net/barcelona-architectures-festival/). The round table event is at 15:00 on the 7th.
+
+##### 8/5 Sunday
+
+##### 9/5 Monday (busy)
+
+##### 10/5 Tuesday
+
+##### 11/5 Wednesday (busy)
+
+##### 12/5 Thursday
+
+##### 13/5 Friday
+
+##### 14/5 Saturday
+
+##### 15/5 Sunday
+
+
