@@ -122,6 +122,8 @@ The [Augeries](https://www.model.barcelona/en/auguries) are virtual indicator sp
 
 **[Co-mida](https://www.model.barcelona/en/co-mida-connecting-plants-and-communities)** How to connect plants and communities through design and digital technologies? CO-mida is a 3D printed wall for food and energy production, co-designed by IAAC with the local community and installed in ConnectHort, where the event will take place. The event will consist of the wall presentation and a roundtable with experts talking about co-design, new technologies, digital fabrication and urban ecology. The roundtable will be moderated by Chiara Farinea (IAAC) and Elisabetta Carnevale (IAAC). This is at ConnectHort which is just down Independencia near the beach. Preregistration is needed through [this webpage](https://iaac.net/barcelona-architectures-festival/). The round table event is at **15:00** on the 7th.
 
+[Domesticidad a la Intemperie](https://www.model.barcelona/en/domesticidad-la-intemperie) This is perhaps a discussion/presentation from **19:30 - 20:30** at Plaça Reial, 08002 Barcelona. The five case studies are private houses that incorporate a dialogue between nature, artifact and life from the design process to inhabitation. Although these are well-known houses, Ricardo Devesa's approach makes us discover a new dimension and rethink our relationship with our natural and architectural environment.
+
 #### 8/5 Sunday
 
 [The Way](https://www.model.barcelona/en/way-medium) is an immersive VR data experience. VR heaadsets will be provided and the event is free. The location is Carrer Ample, 21 from **11:00 to 16:00**. Not sure this is high on my list but seems interesting if other events don't take precedence
@@ -148,11 +150,17 @@ The [Augeries](https://www.model.barcelona/en/auguries) are virtual indicator sp
 
 **[Renewable Energy and Sustainable Solutions at Fabrica del Sol](https://www.model.barcelona/en/renewable-energy-and-sustainable-solutions-la-fabrica-del-sol)** **10:30 to 12:00** at Fabrica del Sol (see above). Not sure how this is different than the tour on Tuesday. This one may be more accessible for me. IAAC registration needed.
 
+[Circularity](https://www.model.barcelona/en/circularity-future-sustainability) **18:00 - 19:00** This looks like a Microsoft Teams discussion (you'll need the app) and is listed as being in Catalan. That would make it difficult for me but it may be of interest to others. Circular engineering is and must be the great ally of this change, providing long-term solutions that help us reduce our impact on the carbon footprint. Architecture and engineering are crucial for sustainable development. We have to design and build resilient infrastructures and we also have to redefine the concept of waste and turn it into an opportunity.
+
 #### 13/5 Friday
 
-**[Spain's First 3D printed (earthen) House Tour](https://www.model.barcelona/en/spains-first-3d-printed-earthen-architectural-prototype)** From **15:00 to 18:00** at IAAC Valldaura Labs, Ctra. BV-1415 (Horta-Cerdanyola), km 7, 08290, Barcelona. I feel like this would be very cool and I'm curious what the 'earthen' part of this is. IAAC registration needed.
+**[Spain's First 3D printed (earthen) House Tour](https://www.model.barcelona/en/spains-first-3d-printed-earthen-architectural-prototype)** From **15:00 to 18:00** at IAAC Valldaura Labs, Ctra. BV-1415 (Horta-Cerdanyola), km 7, 08290, Barcelona. I feel like this would be very cool and I'm curious what the 'earthen' part of this is. IAAC registration needed. I have registered and I still need to figure out how I'm getting to this location. This is the same lab I'm hoping to visit tomorrow (14/5) for the Open labs day. Possibly taxi from Valldaura metro.
+
+[AUS Walk](https://www.model.barcelona/en/aus-walk-sustainability-and-health-buildings-and-urban-forms-barceloneta). This guided walkk will meet at Fabrica del Sol (Fàbrica del Sol, In front of the main door. Fàbrica del Sol - Passeig de Salvat Papasseit, 1, 08003 Barcelona) and is from **18:00 to 19:30** - the 3D house tour conflicts so I can't go. We will discuss three buildings:  La Fàbrica del Sol, as a demonstration of good practices in the rehabilitation of a modernist building, we will pass a “sick building” and the work of ISGlobal will be mentioned, as a research center on environmental health and will go through the Biomedical Research Center. If I can't get to the house tour this will be a nice alternative.
 
 #### 14/5 Saturday
+
+**[IAAC Valldaura Labs Open Day](https://www.model.barcelona/en/iaac-valldaura-labs-open-day)** **16:00 - 20:00** The IAAC Valldaura Labs, a research centre for Self-sufficient habitats located on a historic 130-hectare farm at 20 minutes from downtown Barcelona, will open its doors to visitors on May 14th 2022. As part of IAAC’s commitment to promoting habitability on the basis of ecological principles, making the fullest use of all available technologies and resources, the Valldaura Labs is testing ground allowing to learn directly from nature in order to apply this understanding to the regeneration of XXIst century cities. IAAC Valldaura Labs, Ctra. BV-1415 (Horta-Cerdanyola), km 7, 08290, Barcelona. Registration (done for me) through IAAC required. Note: Might need to get a taxi from L3 Valldaura to the Lab.
 
 #### 15/5 Sunday
 
