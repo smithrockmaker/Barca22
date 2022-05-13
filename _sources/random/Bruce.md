@@ -110,6 +110,8 @@ Between Classes
 
 All of these have some interest for me but the materials discussions are a natural fit for me. I think the way for me to explore this is to list the dates that I might actually have some time available (not M/W) and pick 2 or 3 possible events to keep track of. That will give me more than enough to think about.
 
+**Important Note:** As this festival has evolved many events are showing up in the last minute or even after the festival starts. I need to check each day to see what is happening over the next two days and what has changed.
+
 #### 5/5 Thursday
 
 The [Augeries](https://www.model.barcelona/en/auguries) are virtual indicator species designed to let us know when things are out of balance. Plaça Urquinoana. Inferstudio Bethany Edgoose i Nathan Su - I'm not at all sure how this will work but it appears that the installation will be for the duration of the festival.

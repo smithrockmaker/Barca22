@@ -36,11 +36,15 @@ Plaça Bonsuccés, 5 Entlo
 
 ### Pan Pastels:
 
-[Casa Piera Bellas Artes](https://casapiera.com/es/) These folks represent [Pan Pastels](https://panpastel.com/home.html) in Barcelona. It is just a block or so from La Rambla and a couple of blocks from Print Making Barcelona (Ignasi Aguirre Estudi de Gravat). 
+[Vincenç Piera](https://vpiera.com/) is the actual [Pan Pastels](https://panpastel.com/home.html) rep in Barcelona. Casa Piera Bellas Artes is an easily confused art store near La Rambla. Now that we have this figured out many things make more sense including why nobody at Casa Piera had any idea what we were talking about. See below for the addresses of the stores.
 
-![Casa Piera: map](../imagesBarca22/CasaPiera.png)
+### Pan Pastels: Demo
 
-![Casa Piera: street](../imagesBarca22/CasaPieraSt.png)
+For whatever reason the demo's seem to be unrelated to the business listed above even though the last names are the same. Very confusing. Here are the two demo days and addresses.
+
+**May 12** 18:00 at Carrer Cósega 298. Contact Anna Pierra. This is about a block on the other side of Passeig de Gracia near the Expanish classrooms. We'll visit shortly to get it in our heads. The Diagonal metro station on either L3 or L5 is a block away.
+
+**May 19** 18:00 at Via Augusta 161. Contact Jordi Piera. This location is one we walked past on our way back from the Tibidabo hike the first week. It's about 8 blocks away from Bente's hotel in Gracia. The Muntaner metro stop on L6 is about a block away. L6 can be accessed at Catalunya or Diagonal.
 
 ### Street Artists:
 
