@@ -18,6 +18,9 @@ This is a little pizza/calzones shop that we tripped over as we explored el Born
 
 This small restaurant was recommended by the students after they found it one day. It is a couple of blocks from the Expanish classrooms which is handy. Standard fare but nicely prepared from scratch with excellent service when we were there. A pizza to split and coffee/fanta was 15&euro; - ish for two of us. Apparently on this side of A/ Diagonal is considered Gracia instead of Eixample on the other side of Diagonal.
 
+### [Ferrum Restaurant](https://www.google.com/maps/place/Ferrum+Restaurant/@41.4000813,2.1643223,20.69z/data=!4m13!1m7!3m6!1s0x12a49816718e30e5:0x44b0fb3d4f47660a!2sBarcelona,+Spain!3b1!8m2!3d41.3873974!4d2.168568!3m4!1s0x12a4a2954dcc67eb:0x1cec672514b5d450!8m2!3d41.4001059!4d2.1644057)
+
+We accidentally found this restaurant when another one nearby didn't seem as appealing as reviews suggested. It is just where C/ de Girona meets C/ de Córsega near the Origo bakery. Not far from the intersection of Diagonal with Passeig de Gracia. For us the service was great and the food was also wonderful. A bit more expensive than standard places but not out of line. Definitely worth a visit. Here is a link to some reviews.
 
 
 
